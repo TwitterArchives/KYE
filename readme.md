@@ -4,14 +4,8 @@
 
 This repository contains a collection of tweets posted by Twitter troll known under the pseudonym "Know Your Enemy" for documentation purposes. This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
-
-
-
 List contains some of the identified accounts associated with the user but may be incomplete.
 
-
-
-* [19-09 to 19-09 Kn0wY0urEnemy:
 
 | #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
 | -- | ----------- | --------- | ----------------------- | ------------------- | ----------------------------- |
