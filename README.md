@@ -1,32 +1,32 @@
 ## KYE / Know Your Enemy - Tweet Repository
 
-### CONTENT WARNING: Racism and Antisemitism
+### CONTENT WARNING: Tweets potentially contain racism and antisemitism.
 
 This repository contains a collection of tweets posted by Twitter troll known under the pseudonym "Know Your Enemy" for documentation purposes. This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
-Note: list is incomplete
+Note: list is incomplete and Twitter handles may have changed at points in time.
 
 
 | #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
 | -- | ----------- | --------- | ----------------------- | ------------------- | ----------------------------- |
-| 1  | 2018-05-03  | Suspended | [@\_NameNotGiven\_](https://github.com/TwitterArchives/KYE/blob/main/18-04%20to%2018-05%20_NameNotGiven_.md)       | 988966055497285632  | Know Your Enemy               |
-| 2  | 2019-02-25  | Suspended | [@R\_U\_Still\_Mad](https://github.com/TwitterArchives/KYE/blob/main/19-02%20to%2019-02%20R_U_Still_Mad.md)       | 1094034212263546881 | Know Your Enemy               |
-| 3  | 2019-04-02  | Suspended | [@\_CantStopTruth\_](https://github.com/TwitterArchives/KYE/blob/main/19-03%20to%2019-03%20_CantStopTruth_.md)      | 1106735481616826368 | Know Your Enemy               |
-| 4  | 2019-04-23  | Suspended | [@Cant\_Stop\_Truth](https://github.com/TwitterArchives/KYE/blob/main/19-03%20to%2019-04%20Cant_Stop_Truth.md)      | 1110792088348692480 | Know Your Enemy               |
-| 5  | 2019-04-27  | Suspended | [@\_Rollin\_Bones](https://github.com/TwitterArchives/KYE/blob/main/19-04%20to%2019-04%20_Rollin_Bones.md)        | 1114401964375334917 | Know Your Enemy               |
-| 6  | 2019-04-27  | Suspended | [@\_StillKickin\_ ](https://github.com/TwitterArchives/KYE/blob/main/19-04%20to%2019-04%20_StillKickin_.md)       | 1117985734210646016 | Know Your Enemy               |
-| 7  | 2019-05-30  | Suspended | [@Rollin\_Bones\_](https://github.com/TwitterArchives/KYE/blob/main/19-04%20to%2019-05%20Rollin_Bones_.md)        | 1121241280888168448 | Know Your Enemy               |
-| 8  | 2019-05-30  | Suspended | [@\_Shadow\_Lurking](https://github.com/TwitterArchives/KYE/blob/main/19-05%20to%2019-05%20_Shadow_Lurking.md)      | 1124036122114392064 | Know Your Enemy               |
-| 9  | 2019-05-30  | Suspended | [@\_Still\_Lurking](https://github.com/TwitterArchives/KYE/blob/main/19-05%20to%2019-05%20_Still_Lurking.md)       | 1128654438409752578 | Know Your Enemy               |
-| 10 | 2019-07-06  | Suspended | [@\_Sibilator\_](https://github.com/TwitterArchives/KYE/blob/main/19-06%20to%2019-06%20_Sibilator_.md)          | 1136044147972820992 | Know Your Enemy               |
-| 11 | 2019-07-06  | Suspended | [@\_Sibilator2\_](https://github.com/TwitterArchives/KYE/blob/main/19-06%20to%2019-07%20_Sibilator2_.md)         | 1140889324696657921 | Know Your Enemy               |
-| 12 | 2019-07-07  | Suspended | [@\_Sibilator\_3 ](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20_Sibilator_3.md)        | 1147712584134455296 | Know Your Enemy               |
-| 13 | 2019-07-07  | Suspended | [@Fight0rDie60](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20Fight0rDie60.md)           | 1147845415531765761 | Know Your Enemy               |
-| 14 | 2019-07-12  | Suspended | [@\_FightTilUDie\_](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20_FightTilUDie_.md)       | 1149945764631568384 | Know Your Enemy               |
-| 15 | 2019-08-15  | Suspended | [@InTheSombra](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20InTheSombra.md)            | 1151730586907750401 | Know Your Enemy               |
-| 16 | 2019-08-12  | Suspended | [@Dixie\_Heart\_](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20Dixie_Heart_.md)         | 1152379745457332225 | Know Your Enemy               |
-| 15 | 2019-08-15  | Suspended | [@\_DixiesHeart\_](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-08%20_DixiesHeart_.md)        | 1153902489261002753 | Know Your Enemy               |
-| 16 | 2019-08-22  | Suspended | [@Ropes4Traitors](https://github.com/TwitterArchives/KYE/blob/main/19-08%20to%2019-08%20Ropes4Traitors.md)         | 1157376947317563392 | Know Your Enemy               |
+| 1  | 2018-05-03  | Suspended | [@\_NameNotGiven\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/18-04%20to%2018-05%20_NameNotGiven_.md)       | 988966055497285632  | Know Your Enemy               |
+| 2  | 2019-02-25  | Suspended | [@R\_U\_Still\_Mad](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-02%20to%2019-02%20R_U_Still_Mad.md)       | 1094034212263546881 | Know Your Enemy               |
+| 3  | 2019-04-02  | Suspended | [@\_CantStopTruth\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-03%20to%2019-03%20_CantStopTruth_.md)      | 1106735481616826368 | Know Your Enemy               |
+| 4  | 2019-04-23  | Suspended | [@Cant\_Stop\_Truth](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-03%20to%2019-04%20Cant_Stop_Truth.md)      | 1110792088348692480 | Know Your Enemy               |
+| 5  | 2019-04-27  | Suspended | [@\_Rollin\_Bones](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-04%20to%2019-04%20_Rollin_Bones.md)        | 1114401964375334917 | Know Your Enemy               |
+| 6  | 2019-04-27  | Suspended | [@\_StillKickin\_ ](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-04%20to%2019-04%20_StillKickin_.md)       | 1117985734210646016 | Know Your Enemy               |
+| 7  | 2019-05-30  | Suspended | [@Rollin\_Bones\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-04%20to%2019-05%20Rollin_Bones_.md)        | 1121241280888168448 | Know Your Enemy               |
+| 8  | 2019-05-30  | Suspended | [@\_Shadow\_Lurking](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-05%20to%2019-05%20_Shadow_Lurking.md)      | 1124036122114392064 | Know Your Enemy               |
+| 9  | 2019-05-30  | Suspended | [@\_Still\_Lurking](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-05%20to%2019-05%20_Still_Lurking.md)       | 1128654438409752578 | Know Your Enemy               |
+| 10 | 2019-07-06  | Suspended | [@\_Sibilator\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-06%20to%2019-06%20_Sibilator_.md)          | 1136044147972820992 | Know Your Enemy               |
+| 11 | 2019-07-06  | Suspended | [@\_Sibilator2\_](https://github.com/TwitterArchives/KYE/blob/Accounts/main/19-06%20to%2019-07%20_Sibilator2_.md)         | 1140889324696657921 | Know Your Enemy               |
+| 12 | 2019-07-07  | Suspended | [@\_Sibilator\_3 ](https://github.com/TwitterArchives/KYE/blob/Accounts/main/19-07%20to%2019-07%20_Sibilator_3.md)        | 1147712584134455296 | Know Your Enemy               |
+| 13 | 2019-07-07  | Suspended | [@Fight0rDie60](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-07%20to%2019-07%20Fight0rDie60.md)           | 1147845415531765761 | Know Your Enemy               |
+| 14 | 2019-07-12  | Suspended | [@\_FightTilUDie\_](https://github.com/TwitterArchives/KYE/blob/Accounts/main/19-07%20to%2019-07%20_FightTilUDie_.md)       | 1149945764631568384 | Know Your Enemy               |
+| 15 | 2019-08-15  | Suspended | [@InTheSombra](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-07%20to%2019-07%20InTheSombra.md)            | 1151730586907750401 | Know Your Enemy               |
+| 16 | 2019-08-12  | Suspended | [@Dixie\_Heart\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-07%20to%2019-07%20Dixie_Heart_.md)         | 1152379745457332225 | Know Your Enemy               |
+| 15 | 2019-08-15  | Suspended | [@\_DixiesHeart\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-07%20to%2019-08%20_DixiesHeart_.md)        | 1153902489261002753 | Know Your Enemy               |
+| 16 | 2019-08-22  | Suspended | [@Ropes4Traitors](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-08%20to%2019-08%20Ropes4Traitors.md)         | 1157376947317563392 | Know Your Enemy               |
 | 17 | 2019-09-02  | Suspended | @Ropez4Traitors         | 1157950708399915008 | Know Your Enemy               |
 | 18 | 2019-08-24  | Suspended | @Bullet4Traitors        | 1158156159011950593 | Know Your Enemy               |
 | 19 | 2019-09-13  | Suspended | @CrossfireBlaze\_       | 1163638950122217472 | Know Your Enemy               |
