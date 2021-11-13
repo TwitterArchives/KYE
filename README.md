@@ -53,7 +53,7 @@ Note: list is incomplete and Twitter handles may have changed at points in time.
 | 36 | 2020-07-01  | Suspended | [@Danger\_\_\_Zone\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-07%20Danger___Zone__.md)   | 1276057673667153925 | Danger Zone                   |
 | 37 | 2020-07-17  | Suspended | [@Time2Bleed](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-07%20to%2020-07%20Time2Bleed.md)             | 1278817039633862656 | Ichor                         |
 | 38 | 2020-08-25  | Suspended | [@Burn\_\_ln\_\_Hell\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-08%20to%2020-08%20Burn__ln__Hell_.md)   | 1283625134574772229 | Incinerator                   |
-| 39 | 2020-09-17  | Suspended | @\_\_YourCrucible\_     | 1291477616726220800 | † 𝕮𝖗𝖚𝖈𝖎𝖇𝖑𝖊 †          |
+| 39 | 2020-09-17  | Suspended | [@\_\_YourCrucible\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-08%20to%2020-08%20__YourCrucible_.md)     | 1291477616726220800 | † 𝕮𝖗𝖚𝖈𝖎𝖇𝖑𝖊 †          |
 | 40 | 2020-10-17  | Suspended | @\_MilkNCookiez\_       | 1304586706838892544 | K.Y.E.                        |
 | 41 | 2020-10-29  | Suspended | @Cookiez\_N\_Milk\_     | 1312478326024364032 | 🦇 𝕂.𝕐.𝔼. 🦇               |
 | 42 | 2020-11-09  | Suspended | @\_\_\_RefinedV\_\_\_   | 1318329811622793217 | ⚔ ₭.Ɏ.Ɇ. ⚔                    |
