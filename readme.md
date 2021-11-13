@@ -1,7 +1,7 @@
 ## Archived tweets for \_blackstag\_
 
 The list below includes 463 deleted tweets by
-[_blackstag_](https://twitter.com/_blackstag_).
+[\_blackstag\_](https://twitter.com/_blackstag_).
 
 * [15 April 2020](https://web.archive.org/web/20200415185017/https://twitter.com/_blackstag_/status/1250496685807210497): @MarkKay1965 I hear that box jellyfish are quite effective... in case you never get your blue-ringed octopus. 🦑🐙
 * [14 April 2020](https://web.archive.org/web/20200414033910/https://twitter.com/_blackstag_/status/1249905007941627905): @Le_Derangeur Très bien! Je suis content. 🤗😘
