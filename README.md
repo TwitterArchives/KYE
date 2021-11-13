@@ -56,7 +56,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 39 | 2020-09-17  | Suspended | [@\_\_YourCrucible\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-08%20to%2020-08%20__YourCrucible_.md)     | 1291477616726220800 | † 𝕮𝖗𝖚𝖈𝖎𝖇𝖑𝖊 †          |
 | 40 | 2020-10-17  | Suspended | [@\_MilkNCookiez\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-09%20to%2020-10%20_MilkNCookiez_.md)       | 1304586706838892544 | K.Y.E.                        |
 | 41 | 2020-10-29  | Suspended | [@Cookiez\_N\_Milk\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-10%20to%2020-11%20Cookiez_N_Milk_.md)     | 1312478326024364032 | 🦇 𝕂.𝕐.𝔼. 🦇               |
-| 42 | 2020-11-09  | Suspended | @\_\_\_RefinedV\_\_\_   | 1318329811622793217 | ⚔ ₭.Ɏ.Ɇ. ⚔                    |
+| 42 | 2020-11-09  | Suspended | [@\_\_\_RefinedV\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-11%20to%2020-11%20___RefinedV___.md)   | 1318329811622793217 | ⚔ ₭.Ɏ.Ɇ. ⚔                    |
 | 43 | 2021-02-03  | Suspended | @clampdownonjews        | 1347028618900250624 | Stop jews, Fellow Whites and  |
 | 44 | 2020-12-11  | Suspended | @\_V\_\_\_Refined\_\_\_  | 1323401828696993792 | ЯΣFIПΣD VΣПӨM                 |
 | 45 | 2021-01-20  | Suspended | @MutinyProsodic         | 1350185497767776258 | ᑭᖇOᔕOᗪIᑕ ᗰᑌTIᑎY               |
