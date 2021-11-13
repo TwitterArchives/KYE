@@ -6,7 +6,7 @@ This repository contains a collection of tweets from accounts associated with Tw
 This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
 
-These handles were tracked by a collective of individuals, and all collected tweets were publicly posted by the user and saved at archive.org.
+All tweets were publicly posted on the accounts and saved at archive.org.
 
 Note: list is incomplete and Twitter handles may have changed at points in time.
 
@@ -51,7 +51,7 @@ Note: list is incomplete and Twitter handles may have changed at points in time.
 | 34 | 2020-06-17  | Suspended | [@Fight\_0r\_Die\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-06%20Fight_0r_Die_.md)       | 1272961728981196800 | Tùlach Àrd 🇺🇸🏴󠁧󠁢󠁳󠁣󠁴󠁿 |
 | 35 | 2020-07-01  | Suspended | @\_POC\_HATER\_         | 1273676436579082240 | POC Hater                     |
 | 36 | 2020-07-01  | Suspended | [@Danger\_\_\_Zone\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-07%20Danger___Zone__.md)   | 1276057673667153925 | Danger Zone                   |
-| 37 | 2020-07-17  | Suspended | @Time2Bleed             | 1278817039633862656 | Ichor                         |
+| 37 | 2020-07-17  | Suspended | [@Time2Bleed](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-07%20to%2020-07%20Time2Bleed.md)             | 1278817039633862656 | Ichor                         |
 | 38 | 2020-08-25  | Suspended | @Burn\_\_ln\_\_Hell\_   | 1283625134574772229 | Incinerator                   |
 | 39 | 2020-09-17  | Suspended | @\_\_YourCrucible\_     | 1291477616726220800 | † 𝕮𝖗𝖚𝖈𝖎𝖇𝖑𝖊 †          |
 | 40 | 2020-10-17  | Suspended | @\_MilkNCookiez\_       | 1304586706838892544 | K.Y.E.                        |
