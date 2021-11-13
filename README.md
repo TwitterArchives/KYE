@@ -2,7 +2,7 @@
 
 ### CONTENT WARNING: Tweets potentially contain racism and antisemitism.
 
-This repository contains a collection of tweets from accounts associated with abusive Twitter user "Know Your Enemy" for documentation purposes. 
+This repository contains a collection of tweets from accounts associated with Twitter user "Know Your Enemy" to document the abuse and harassment coming from these accounts. 
 This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
 
