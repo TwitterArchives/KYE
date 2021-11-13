@@ -1,12 +1,12 @@
 ## KYE / Know Your Enemy - Tweet Repository
 
-### CONTENT WARNING: Tweets potentially contain racism and antisemitism.
+### CONTENT WARNING: Tweets may contain racism and antisemitism.
 
 This repository contains a collection of tweets from Twitter user "Know Your Enemy" to document the abuse and harassment coming from these accounts. 
 This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
 
-All tweets were publicly posted on the accounts and saved at archive.org.
+All tweets were publicly posted by the user and had a saved version located at archive.org.
 
 Note: List is incomplete and Twitter handles may have changed at points in time.
 
