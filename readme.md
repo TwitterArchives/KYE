@@ -1,6 +1,6 @@
-### KYE / Know Your Enemy Tweet Repository
+## KYE / Know Your Enemy - Tweet Repository
 
-## CONTENT WARNING: Racism and Antisemitism
+### CONTENT WARNING: Racism and Antisemitism
 
 This repository is a collection of tweets posted by abusive Twitter troll known under the pseudonym "Know Your Enemy".
 
