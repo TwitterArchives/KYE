@@ -1,4 +1,4 @@
-## KYE / Know Your Enemy - Tweet Repository
+## KYE / Know Your Enemy - Tracking and Tweet Repository
 
 ### CONTENT WARNING: Tweets may contain racism and antisemitism.
 
