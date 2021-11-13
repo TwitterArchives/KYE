@@ -15,7 +15,7 @@ the following commands:
 
 ```bash
 $ cargo build --release
-$ target/release/twcc deleted-tweets --report _blackstag_
+$ target/release/twcc deleted-tweets --report __End__Game
 ```
 
 Please note that all tweets quoted here are sourced from the
