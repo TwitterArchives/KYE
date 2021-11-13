@@ -2,7 +2,7 @@
 
 ### CONTENT WARNING: Tweets potentially contain racism and antisemitism.
 
-This repository contains a collection of tweets posted by Twitter troll known under the pseudonym "Know Your Enemy" for documentation purposes. 
+This repository contains a collection of tweets from accounts associated with Twitter troll "Know Your Enemy" for documentation purposes. 
 This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
 
@@ -43,7 +43,7 @@ Note: list is incomplete and Twitter handles may have changed at points in time.
 | 26 | 2020-02-16  | Suspended | [@DarkHorseRides\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-12%20to%2020-02%20DarkHorseRides_.md)       | 1211433675633487872 | Know Your Enemy               |
 | 27 | 2020-02-18  | Suspended | [@\_Luceo\_NonUro\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-02%20to%2020-02%20_Luceo_NonUro_.md)      | 37642998            | Know Your Enemy               |
 | 28 | 2020-02-19  | Suspended | [@\_blackstag\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-04%20to%2020-04%20_blackstag_.md)          | 1228518278689181699 | Know Your Enemy               |
-| 29 | 2020-05-12  | Suspended | @\_\_End\_\_Game        | 1233884667704537092 | Know Your Enemy               |
+| 29 | 2020-05-12  | Suspended | [@\_\_End\_\_Game](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-03%20to%2020-05%20__End__Game.md)        | 1233884667704537092 | Know Your Enemy               |
 | 30 | 2020-04-01  | Suspended | @\_End\_Game\_          | 1244567805095219200 | KYE                           |
 | 31 | 2020-06-04  | Suspended | @\_cremator\_           | 1268341963322843136 | Cremator 🔥                   |
 | 32 | 2020-06-12  | Suspended | @\_Black\_Stag\_        | 1266427274514980867 | Know Your Enemy               |
