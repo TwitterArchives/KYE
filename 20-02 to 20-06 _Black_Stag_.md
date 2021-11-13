@@ -1,0 +1,352 @@
+## Archived tweets for _Black_Stag_
+
+The list below includes 345 deleted tweets by
+[_Black_Stag_](https://twitter.com/_Black_Stag_).
+
+
+
+* [ 3 June 2020](https://web.archive.org/web/20200604015914/https://twitter.com/_Black_Stag_/status/1268304888645074944): Just got some isometrics lessons from  @RadioactiveRedn . Great workout.  I agree. People need to get in shape... now. They'll never survive if they can't walk or run a few miles.
+* [ 3 June 2020](https://web.archive.org/web/20200603231114/https://twitter.com/_Black_Stag_/status/1268302567638855685): Lol. Always. 😆
+* [ 3 June 2020](https://web.archive.org/web/20200603233630/https://twitter.com/_Black_Stag_/status/1268301236035440641): Hi, darlin. 🤗 How's your day going?
+* [ 3 June 2020](https://web.archive.org/web/20200604180529/https://twitter.com/_Black_Stag_/status/1268240850351321091): #WhiteLivesMatter  the most.
+* [ 3 June 2020](https://web.archive.org/web/20200603210935/https://twitter.com/_Black_Stag_/status/1268239264610873344): NO https://twitter.com/Xrcalo/status/1268233462722355201
+* [ 3 June 2020](https://web.archive.org/web/20200603181316/https://twitter.com/_Black_Stag_/status/1268232616055996418): @JosephPrichard7  Hi, handsome Joe! How's your day going, darlin? 🤗💕
+* [ 3 June 2020](https://web.archive.org/web/20200604022543/https://twitter.com/_Black_Stag_/status/1268230734252085250): @RadioactiveRedn  Good morning, you amazingly sexy man! Have a great day. See you at lunch. ❤ U. 😘
+* [ 3 June 2020](https://web.archive.org/web/20200603214929/https://twitter.com/_Black_Stag_/status/1268221721741389825): GOOOOD MORNING, YOU RACIST, WHITE BADASSES! 🤗💕 pic.twitter.com/v2WwGGN33e
+* [ 3 June 2020](https://web.archive.org/web/20200603035111/https://twitter.com/_Black_Stag_/status/1267969759863160832): Why are people so excited about a bunch of spics chasing a bunch of niggers out of "their" neighborhoods?  HELLO. Spics don't belong in this country either!
+* [ 2 June 2020](https://web.archive.org/web/20200604031026/https://twitter.com/_Black_Stag_/status/1267949097647878144): Photos from today's adventures. 🤗🏔 pic.twitter.com/VFLx5yk0Fs
+* [ 2 June 2020](https://web.archive.org/web/20200603173211/https://twitter.com/_Black_Stag_/status/1267864811401953282): Think for yourself. Be the chess player, not the chess piece. pic.twitter.com/I098UUig1W
+* [ 2 June 2020](https://web.archive.org/web/20200603174059/https://twitter.com/_Black_Stag_/status/1267855360980709377): Niggers will be  #muted
+* [ 2 June 2020](https://web.archive.org/web/20200603025650/https://twitter.com/_Black_Stag_/status/1267843187525074945): Taking shelter in people's homes?  I.. can't.. even. 🤣😂 https://twitter.com/Kabcbn145/status/1267666220637192192
+* [ 2 June 2020](https://web.archive.org/web/20200603033227/https://twitter.com/_Black_Stag_/status/1267841055564521472): @RadioactiveRedn  G'mornin, baby.   You are such an honorable man. Have a good day. I love you. ❤
+* [ 2 June 2020](https://web.archive.org/web/20200603052055/https://twitter.com/_Black_Stag_/status/1267709047765037056): Stupid niggers
+* [ 2 June 2020](https://web.archive.org/web/20200602232922/https://twitter.com/_Black_Stag_/status/1267627837814497281): The ONLY people that belong in this country are those of White, European descent. They need to protect and defend themselves. The jew-controlled government isn't going to. https://twitter.com/QuarantineTrac1/status/1267589037084291072
+* [ 1 June 2020](https://web.archive.org/web/20200602203340/https://twitter.com/_Black_Stag_/status/1267575784991940608): @Edward_Cafe  Wut up, homie? 🤗
+* [ 1 June 2020](https://web.archive.org/web/20200602185616/https://twitter.com/_Black_Stag_/status/1267566969550548993): @RadioactiveRedn  You're the most amazing man I've ever met. I'm so grateful to God for having brought us together. ❤
+* [ 1 June 2020](https://web.archive.org/web/20200601210550/https://twitter.com/_Black_Stag_/status/1267563027773009920): @Gimme_da_Loot_ Every day should be 'racism day'.  Racism is good. Racism is wise. With poc there is no compromise.   My day has been fantastic. Thank you. 🤗 Keep up the good work. Still a lot of normies to redpill, but at least these dumb niggers are making it easy for us.
+* [ 1 June 2020](https://web.archive.org/web/20200602194556/https://twitter.com/_Black_Stag_/status/1267558637540524033): @Gimme_da_Loot_  Hi darlin. How's your day going? 🤗💕
+* [ 1 June 2020](https://web.archive.org/web/20200601060409/https://twitter.com/_Black_Stag_/status/1267333318053294080): Shut up, nigger. https://twitter.com/FromRagsToGP/status/1267310464763072512
+* [ 1 June 2020](https://web.archive.org/web/20200601054920/https://twitter.com/_Black_Stag_/status/1267326661667635202): Stupid niggers
+* [ 1 June 2020](https://web.archive.org/web/20200601042359/https://twitter.com/_Black_Stag_/status/1267298816341839873): "The personification of the devil as the symbol of all evil, assumes the living shape of the jew."   Adolph Hitler pic.twitter.com/Oqfr77nGsS
+* [ 1 June 2020](https://web.archive.org/web/20200601033727/https://twitter.com/_Black_Stag_/status/1267296278204932096): JEWS have set the historic St. Johns Church in Washington DC on fire.  Don't bother trying to convince me that it wasn't them. It's ALWAYS them. https://twitter.com/ColumbiaBugle/status/1267285482884313088
+* [ 1 June 2020](https://web.archive.org/web/20200601023051/https://twitter.com/_Black_Stag_/status/1267267731457404928): TWITTER WON'T LET ME LIKE ANYONE'S TWEETS!  STUPID KIKE  @JACK
+* [ 1 June 2020](https://web.archive.org/web/20200601014500/https://twitter.com/_Black_Stag_/status/1267259394158292992): Wuts goin on, homie? 😁
+* [ 1 June 2020](https://web.archive.org/web/20200601014500/https://twitter.com/_Black_Stag_/status/1267259394158292992): Follow dis nigga bumpkin. He dindu nufin. 👇 https://twitter.com/Edward_Cafe/status/1267238516901253124
+* [31 May 2020](https://web.archive.org/web/20200531231243/https://twitter.com/_Black_Stag_/status/1267230355783733249): Should've taken queue from the FedEx guy. https://twitter.com/Breaking911/status/1267219474668797961
+* [31 May 2020](https://web.archive.org/web/20200531185532/https://twitter.com/_Black_Stag_/status/1267166245759012864): @RadioactiveRedn  You're so amazing. I absolutely adore you. 😍😘❤
+* [31 May 2020](https://web.archive.org/web/20200531181550/https://twitter.com/_Black_Stag_/status/1267154864754184193): HI, EVERYBODY!! 🤗❤ pic.twitter.com/5eXQrshWeL
+* [31 May 2020](https://web.archive.org/web/20200531084623/https://twitter.com/_Black_Stag_/status/1267011214762061824): Bouncing betties full of shrapnel. Lol
+* [31 May 2020](https://web.archive.org/web/20200531084148/https://twitter.com/_Black_Stag_/status/1267009961952858112): No there aren't. Nice try though.
+* [31 May 2020](https://web.archive.org/web/20200531083251/https://twitter.com/_Black_Stag_/status/1267009594653466624): Kelvin, are you by any chance... jewish?
+* [31 May 2020](https://web.archive.org/web/20200531082922/https://twitter.com/_Black_Stag_/status/1267008705704243201): L E A D https://twitter.com/KNXBaird/status/1266997043085504513
+* [31 May 2020](https://web.archive.org/web/20200531082103/https://twitter.com/_Black_Stag_/status/1267006004505399298): Lol
+* [31 May 2020](https://web.archive.org/web/20200531081439/https://twitter.com/_Black_Stag_/status/1267004622033444864): ONG - is that like "oh nigger god" or something? https://twitter.com/yejimia/status/1266965137900142593
+* [31 May 2020](https://web.archive.org/web/20200531081549/https://twitter.com/_Black_Stag_/status/1267003856396795904): You're in my prayers. Sweet dreams, darlin. May the Lord bless and keep you. 🌠🌙😘
+* [31 May 2020](https://web.archive.org/web/20200531080440/https://twitter.com/_Black_Stag_/status/1267002381675278336): Went for a drive earlier today and saw this sign. It's full of bullet holes. Lol. pic.twitter.com/Qjz3mCeILM
+* [31 May 2020](https://web.archive.org/web/20200531074809/https://twitter.com/_Black_Stag_/status/1266998689509240833): https://twitter.com/_Black_Stag_/status/1266659787095195655
+* [31 May 2020](https://web.archive.org/web/20200531075007/https://twitter.com/_Black_Stag_/status/1266997895263182850): I think there has to be a balance of good and evil. There's a reason jews exist in small numbers. Any more of them, and they'd literally destroy the world (they almost have). There *will* be a culling. There are too many. I don't see God allowing them to thrive for much longer.
+* [31 May 2020](https://web.archive.org/web/20200531074223/https://twitter.com/_Black_Stag_/status/1266995723205095424): Agreed. God sees.
+* [31 May 2020](https://web.archive.org/web/20200531073106/https://twitter.com/_Black_Stag_/status/1266992855223951360): Because jews https://twitter.com/JosephPrichard7/status/1266938948959514626
+* [31 May 2020](https://web.archive.org/web/20200531073043/https://twitter.com/_Black_Stag_/status/1266992656187457536): If you weren't sure of her jewishness before, you can certainly be sure now. https://twitter.com/taylorswift13/status/1266392274549776387
+* [31 May 2020](https://web.archive.org/web/20200531072226/https://twitter.com/_Black_Stag_/status/1266990644020383744): judaism is a perversion of Christianity, which is why Jesus condemned it.   The two are antithetical to one another.  Christianity is of God. judaism is of the devil.
+* [31 May 2020](https://web.archive.org/web/20200531070840/https://twitter.com/_Black_Stag_/status/1266988996141305856): judaism is a perversion of Christianity.  The Bible was not written by jews. The Bible has nothing to do with jews.  Jesus was not a jew. He was a Galilean. None of the disciples were jews. They were Galilean Israelites. jews are not Israelites.
+* [31 May 2020](https://web.archive.org/web/20200531070310/https://twitter.com/_Black_Stag_/status/1266987162446094336): jews aren't Hebrews, or Israelites. Other than the fact that they killed Jesus, the Bible literally has nothing to do with them.
+* [31 May 2020](https://web.archive.org/web/20200531065855/https://twitter.com/_Black_Stag_/status/1266986284167294976): No, it is not. The Bible is Christian from beginning to end.   Pharisee jews (not Israelites) perverted the word of God (Christianity) circa 130 BC.   Rabbinic judaism didn't exist until 500 AD. It is based on ancient Pharisaic teachings, and is also a perversion of Christianity.
+* [31 May 2020](https://web.archive.org/web/20200531064918/https://twitter.com/_Black_Stag_/status/1266983967040790529): It's in all of us. We just gotta have some courage and let it loose.
+* [31 May 2020](https://web.archive.org/web/20200531053653/https://twitter.com/_Black_Stag_/status/1266965937711804416): . @Jack  is a kike faggot https://twitter.com/Yanky_Pollak/status/1266948249505673218
+* [31 May 2020](https://web.archive.org/web/20200531053520/https://twitter.com/_Black_Stag_/status/1266963941877379074): Walkers - welcome  Joggers - gtfo https://twitter.com/AgnesDieter/status/1266905877979807745
+* [31 May 2020](https://web.archive.org/web/20200531045207/https://twitter.com/_Black_Stag_/status/1266954940712271872): There are plenty of jewish ones though.
+* [31 May 2020](https://web.archive.org/web/20200531033748/https://twitter.com/_Black_Stag_/status/1266935364804988928): I trust the jews completely. What are you talking about, you antisemite!?
+* [31 May 2020](https://web.archive.org/web/20200531033756/https://twitter.com/_Black_Stag_/status/1266934907307057155): Gunning them down is the only thing that *will* stop them.
+* [31 May 2020](https://web.archive.org/web/20200531033714/https://twitter.com/_Black_Stag_/status/1266934275724546048): He's just kidding. Lol
+* [31 May 2020](https://web.archive.org/web/20200531032927/https://twitter.com/_Black_Stag_/status/1266933567688302593): Lol
+* [31 May 2020](https://web.archive.org/web/20200531033157/https://twitter.com/_Black_Stag_/status/1266933100035993601): This is one of the most retarded, illogical tweets I've seen today. Bravo. https://twitter.com/propilot123/status/1266926431663034368
+* [31 May 2020](https://web.archive.org/web/20200531031708/https://twitter.com/_Black_Stag_/status/1266931087776727044): Lol. I think we're all needing the extra energy. 😆
+* [31 May 2020](https://web.archive.org/web/20200531032219/https://twitter.com/_Black_Stag_/status/1266930857039679488): He could still die from his injuries. I'm glad he's not dead though.  I agree completely.
+* [31 May 2020](https://web.archive.org/web/20200531031208/https://twitter.com/_Black_Stag_/status/1266929930090110979): They're saying he was critically injured.   Watch out for that kike, Liberty Hangout
+* [31 May 2020](https://web.archive.org/web/20200531030539/https://twitter.com/_Black_Stag_/status/1266927564603326464): Umm... that's normal. https://twitter.com/Lukewearechange/status/1266916141475086336
+* [31 May 2020](https://web.archive.org/web/20200531025948/https://twitter.com/_Black_Stag_/status/1266925732162269184): BEEP BEEP, TRUCK!
+* [31 May 2020](https://web.archive.org/web/20200531025501/https://twitter.com/_Black_Stag_/status/1266924760111280128): Lmao 🤣
+* [31 May 2020](https://web.archive.org/web/20200531025553/https://twitter.com/_Black_Stag_/status/1266923894788653057): Faggot
+* [31 May 2020](https://web.archive.org/web/20200531024943/https://twitter.com/_Black_Stag_/status/1266924338415951872): BEEP BEEP, TRUCK!
+* [31 May 2020](https://web.archive.org/web/20200531025553/https://twitter.com/_Black_Stag_/status/1266923894788653057): I almost called him that. Lol
+* [31 May 2020](https://web.archive.org/web/20200531024407/https://twitter.com/_Black_Stag_/status/1266922125006270466): You're a stupid kike. https://twitter.com/LibertyHangout/status/1266900446939152385
+* [31 May 2020](https://web.archive.org/web/20200531024032/https://twitter.com/_Black_Stag_/status/1266921839898423296): Indeed. All this nigger talk has drained me. Guess I needed a sugar rush. 😆
+* [31 May 2020](https://web.archive.org/web/20200531024152/https://twitter.com/_Black_Stag_/status/1266921481583202305): 🤗💕
+* [31 May 2020](https://web.archive.org/web/20200531024059/https://twitter.com/_Black_Stag_/status/1266920307589173248): You're family. Of course I'll always follow you back. 🤗😘
+* [31 May 2020](https://web.archive.org/web/20200531023747/https://twitter.com/_Black_Stag_/status/1266919999588859904): Yummy cinnamon candy. 🤗😋
+* [31 May 2020](https://web.archive.org/web/20200531023037/https://twitter.com/_Black_Stag_/status/1266919891765878785): Aww. Thank you. pic.twitter.com/2QrOpq4WtA
+* [31 May 2020](https://web.archive.org/web/20200531023345/https://twitter.com/_Black_Stag_/status/1266918583323332608): https://twitter.com/ElijahSchaffer/status/1266906286337265667  pic.twitter.com/mernMUsFrn
+* [31 May 2020](https://web.archive.org/web/20200531022036/https://twitter.com/_Black_Stag_/status/1266915874947993600): Good show tonight, btw. I followed you. 😁
+* [31 May 2020](https://web.archive.org/web/20200531022036/https://twitter.com/_Black_Stag_/status/1266915874947993600): And no you don't. I only want to hear you.
+* [31 May 2020](https://web.archive.org/web/20200531022036/https://twitter.com/_Black_Stag_/status/1266915874947993600): Sorry, Joe. I wouldn't be able to refrain from using the words kike and nigger every two seconds. 😬😆
+* [31 May 2020](https://web.archive.org/web/20200531021526/https://twitter.com/_Black_Stag_/status/1266913673836036096): Dude, you're from Bahrain. When it comes to Arabs, you're at the bottom of the totem pole. Even other Arabs hate you. Lol. You're the nuggle of the Arab world.
+* [31 May 2020](https://web.archive.org/web/20200531021007/https://twitter.com/_Black_Stag_/status/1266912475116601345): This is true. 😆
+* [31 May 2020](https://web.archive.org/web/20200531020209/https://twitter.com/_Black_Stag_/status/1266909630887673857): Get out of my mentions, you bin haram.
+* [31 May 2020](https://web.archive.org/web/20200531012658/https://twitter.com/_Black_Stag_/status/1266903736363802624): I just ate a whole box of hot tamales. 😬   I don't even like sugar.
+* [31 May 2020](https://web.archive.org/web/20200531012118/https://twitter.com/_Black_Stag_/status/1266894437109514240): You know who this is, don't you?
+* [31 May 2020](https://web.archive.org/web/20200531005619/https://twitter.com/_Black_Stag_/status/1266894305253224448): Lol
+* [31 May 2020](https://web.archive.org/web/20200531005619/https://twitter.com/_Black_Stag_/status/1266894305253224448): @EternalScot  you gonna follow me back or not? 😌
+* [31 May 2020](https://web.archive.org/web/20200531000344/https://twitter.com/_Black_Stag_/status/1266881536432865282): 💕😘
+* [30 May 2020](https://web.archive.org/web/20200531000344/https://twitter.com/_Black_Stag_/status/1266881536432865282): No one could've done a better job as CEO. 😉
+* [30 May 2020](https://web.archive.org/web/20200530235555/https://twitter.com/_Black_Stag_/status/1266880461030092800): There's a reason jews and niggers get along so well.   They both take pleasure in burning down Christian churches. https://twitter.com/MrsBrometheus/status/1266803812615909376
+* [30 May 2020](https://web.archive.org/web/20200530232030/https://twitter.com/_Black_Stag_/status/1266870630911074304): Lol
+* [30 May 2020](https://web.archive.org/web/20200530231556/https://twitter.com/_Black_Stag_/status/1266869459051937792): Shane's been pointing out the fact that they can't spell worth a damn. Lol.
+* [30 May 2020](https://web.archive.org/web/20200530231204/https://twitter.com/_Black_Stag_/status/1266868922994679810): This nigger said 'please'. At least it knows its place. https://twitter.com/RosaNiamh/status/1266868408563437569
+* [30 May 2020](https://web.archive.org/web/20200530230649/https://twitter.com/_Black_Stag_/status/1266867503721934849): . @Flashman_0  🤣 https://twitter.com/PartyGoy/status/1266861257384054784
+* [30 May 2020](https://web.archive.org/web/20200530230043/https://twitter.com/_Black_Stag_/status/1266866531889102848): Don't mind me. Just amusing myself. Im bored. 😆
+* [30 May 2020](https://web.archive.org/web/20200530230327/https://twitter.com/_Black_Stag_/status/1266866430022017024): LOL
+* [30 May 2020](https://web.archive.org/web/20200530230142/https://twitter.com/_Black_Stag_/status/1266866268511932416): Kike https://twitter.com/bruh90090521/status/1266866163171995648
+* [30 May 2020](https://web.archive.org/web/20200530230111/https://twitter.com/_Black_Stag_/status/1266865771075891200): Nigger https://twitter.com/bruh90090521/status/1266865102457733122
+* [30 May 2020](https://web.archive.org/web/20200530225639/https://twitter.com/_Black_Stag_/status/1266865614460575744): And if they don't comply, the police and national guard will actually do something? 😏 https://twitter.com/Breaking911/status/1266864893325647874
+* [30 May 2020](https://web.archive.org/web/20200530225528/https://twitter.com/_Black_Stag_/status/1266864798689452032): 🎶 Oooh lawdy, pick a bale o' cotton 🎶 pic.twitter.com/PFqwDDyc9P
+* [30 May 2020](https://web.archive.org/web/20200530224813/https://twitter.com/_Black_Stag_/status/1266863785756647425): I hate to break it to you nigger, but that's a compliment. It's impossible for a nigger to insult a White person. Why? Because I'll always be the one cracking the whip. 😆 https://twitter.com/bruh90090521/status/1266862048735969281
+* [30 May 2020](https://web.archive.org/web/20200530225108/https://twitter.com/_Black_Stag_/status/1266862589666930688): 🤗😍
+* [30 May 2020](https://web.archive.org/web/20200530224500/https://twitter.com/_Black_Stag_/status/1266861664118255618): t
+* [30 May 2020](https://web.archive.org/web/20200530224641/https://twitter.com/_Black_Stag_/status/1266861324337704960): Depends on whose body it is. 🤨
+* [30 May 2020](https://web.archive.org/web/20200530234443/https://twitter.com/_Black_Stag_/status/1266859490856468481): Judgement
+* [30 May 2020](https://web.archive.org/web/20200530224023/https://twitter.com/_Black_Stag_/status/1266859167962169344): K I K E S    and   N I G G E R S https://twitter.com/LionelMedia/status/1266679051340722186
+* [30 May 2020](https://web.archive.org/web/20200530223218/https://twitter.com/_Black_Stag_/status/1266857494988509184): 😘
+* [30 May 2020](https://web.archive.org/web/20200530221721/https://twitter.com/_Black_Stag_/status/1266854420270084096): An excellent way to invest your money.
+* [30 May 2020](https://web.archive.org/web/20200530220131/https://twitter.com/_Black_Stag_/status/1266852012487880705): Still handsome Joe. 😁💕
+* [30 May 2020](https://web.archive.org/web/20200530212450/https://twitter.com/_Black_Stag_/status/1266839337389285377): Lol. At least these niggers are entertaining. 😆 https://twitter.com/1bandzbitch/status/1266839110510981120
+* [30 May 2020](https://web.archive.org/web/20200530210301/https://twitter.com/_Black_Stag_/status/1266835228150001664): A LOT. 😁
+* [30 May 2020](https://web.archive.org/web/20200530225108/https://twitter.com/_Black_Stag_/status/1266862589666930688): Are you projecting? Is this what your uncle did to you when he got out of prison? We all know you don't have a dad. https://twitter.com/heroinsota/status/1266825085349961730
+* [30 May 2020](https://web.archive.org/web/20200530202353/https://twitter.com/_Black_Stag_/status/1266827607443517440): Niggers don't hate you because you're White. They hate you because they're not.
+* [30 May 2020](https://web.archive.org/web/20200530201756/https://twitter.com/_Black_Stag_/status/1266825959027560448): Because God loves me enough to not make me a nigger. https://twitter.com/tayoffdamolly/status/1266825292418617345
+* [30 May 2020](https://web.archive.org/web/20200530201145/https://twitter.com/_Black_Stag_/status/1266822322628919296): ☹
+* [30 May 2020](https://web.archive.org/web/20200530201145/https://twitter.com/_Black_Stag_/status/1266822322628919296): Did you ever hear back from Jacob?
+* [30 May 2020](https://web.archive.org/web/20200530201106/https://twitter.com/_Black_Stag_/status/1266822153720066048): 😋
+* [30 May 2020](https://web.archive.org/web/20200530195954/https://twitter.com/_Black_Stag_/status/1266821398615355392): Yes, I can. 🤗 Thank you, darlin. 💕
+* [30 May 2020](https://web.archive.org/web/20200530210301/https://twitter.com/_Black_Stag_/status/1266835228150001664): It's not a stereotype. You niggers really ARE stupid. Lol.
+* [30 May 2020](https://web.archive.org/web/20200530195355/https://twitter.com/_Black_Stag_/status/1266818433968041984): Lol. Sorry. I was having fun with the beep beep truck thing yesterday. 😆😘
+* [30 May 2020](https://web.archive.org/web/20200530192912/https://twitter.com/_Black_Stag_/status/1266813476221009920): Hello, my sweet. I'm fan-bloody-tastic, save for all the monkeys invading my page. Geez.   How are you feeling today? 🤗❤
+* [30 May 2020](https://web.archive.org/web/20200530193300/https://twitter.com/_Black_Stag_/status/1266812465112690688): There are 6 gorillion (pun intended) niggers in my mentions. 😒
+* [30 May 2020](https://web.archive.org/web/20200530192807/https://twitter.com/_Black_Stag_/status/1266811687094476800): No. Brother Jonah has talmud lessons, so brother Amos decided to go with him.
+* [30 May 2020](https://web.archive.org/web/20200530181236/https://twitter.com/_Black_Stag_/status/1266793186904510464): Lol
+* [30 May 2020](https://web.archive.org/web/20200530182937/https://twitter.com/_Black_Stag_/status/1266791919960481792): But... she's cute. She can get away with it. How can you say no to that adorable face? 😆
+* [30 May 2020](https://web.archive.org/web/20200530181213/https://twitter.com/_Black_Stag_/status/1266791562811281409): Lol
+* [30 May 2020](https://web.archive.org/web/20200530181305/https://twitter.com/_Black_Stag_/status/1266790947255271424): It's run by kikels.
+* [30 May 2020](https://web.archive.org/web/20200530180813/https://twitter.com/_Black_Stag_/status/1266790131588952064): Aww. 😍 I wish I could pet her sweet little head. She really is the cutest dog.   Lamb? She's not spoiled or anything. 😁💕
+* [30 May 2020](https://web.archive.org/web/20200530181746/https://twitter.com/_Black_Stag_/status/1266788942558330881): There's no such thing as a 110 IQ black.
+* [30 May 2020](https://web.archive.org/web/20200530181150/https://twitter.com/_Black_Stag_/status/1266787776084668418): (((Amish people))) https://twitter.com/RT_com/status/1266734860690833409
+* [30 May 2020](https://web.archive.org/web/20200530182858/https://twitter.com/_Black_Stag_/status/1266787542034034688): We're allowed to do whatever we want. That's the thing. We're just being told that we're not. It's called an 'invisible barrier'.
+* [30 May 2020](https://web.archive.org/web/20200530183158/https://twitter.com/_Black_Stag_/status/1266785710889005056): Lol. Hi, Mark. 😁 How's my little princess today? Did she catch any vermin? 💕
+* [30 May 2020](https://web.archive.org/web/20200530174607/https://twitter.com/_Black_Stag_/status/1266784848963764225): I think I may have said nigger - or maybe it was kike - one too many times.   These report-fags never learn. 😆
+* [30 May 2020](https://web.archive.org/web/20200530181439/https://twitter.com/_Black_Stag_/status/1266783128732921857): 👇👇👇 https://twitter.com/Gimme_da_Loot_/status/1266782846129225733
+* [30 May 2020](https://web.archive.org/web/20200530174257/https://twitter.com/_Black_Stag_/status/1266783055617732608): Welcome back, handsome! Always happy to see you. 🤗💕
+* [30 May 2020](https://web.archive.org/web/20200530175305/https://twitter.com/_Black_Stag_/status/1266782901032505345): That's always good to hear. Have an awesome day. 🤗 pic.twitter.com/Bg5rIk6J14
+* [30 May 2020](https://web.archive.org/web/20200530174401/https://twitter.com/_Black_Stag_/status/1266781293213175808): G'mornin, Jane. 🤗💕
+* [30 May 2020](https://web.archive.org/web/20200530172107/https://twitter.com/_Black_Stag_/status/1266771703268401152): Have a good time, darlin. 😘❤
+* [30 May 2020](https://web.archive.org/web/20200530165109/https://twitter.com/_Black_Stag_/status/1266770059361308672): Yay! 🤗❤
+* [30 May 2020](https://web.archive.org/web/20200530162050/https://twitter.com/_Black_Stag_/status/1266761899443499008): Hi, darlin. Hope you have a great day. 🤗💕
+* [30 May 2020](https://web.archive.org/web/20200530164416/https://twitter.com/_Black_Stag_/status/1266761146263957504): @RadioactiveRedn  Hey, baby. You're pretty sexy. Wanna go out with me? 😍❤
+* [30 May 2020](https://web.archive.org/web/20200530161530/https://twitter.com/_Black_Stag_/status/1266760385207492608): GOOOOOOD MORNING, NIGGER HATERS. 🤗❤ pic.twitter.com/PvWhXKZmgo
+* [30 May 2020](https://web.archive.org/web/20200530110430/https://twitter.com/_Black_Stag_/status/1266659787095195655): Communist jews are using niggers to destroy America's infrastructure.
+* [30 May 2020](https://web.archive.org/web/20200530111150/https://twitter.com/_Black_Stag_/status/1266653874443522052): Nite nite. Sweet dreams. 🌠🌙
+* [30 May 2020](https://web.archive.org/web/20200530085959/https://twitter.com/_Black_Stag_/status/1266651968140787713): DO NOT IRRITATE DIS NIGGA!! HE LIABLE TO POP A CAP IN DAT ASS! https://twitter.com/BookishBumpkin/status/1266651687009374208
+* [30 May 2020](https://web.archive.org/web/20200530084409/https://twitter.com/_Black_Stag_/status/1266649178073034757): Endless niggers in my mentions.   Seriously. Y'all need to stop breeding. You're literally the reason for global warming.  https://twitter.com/Nyxnate/status/1266648334258917376  pic.twitter.com/voQ1sjFE1V
+* [30 May 2020](https://web.archive.org/web/20200530113952/https://twitter.com/_Black_Stag_/status/1266619581637865473): Not yet. I'll make one when I need to. It'll #100, so I'll be throwing a celebration. 🎉
+* [30 May 2020](https://web.archive.org/web/20200530071814/https://twitter.com/_Black_Stag_/status/1266622492862328832): Night, Engie. Sweet dreams. Stay safe. 🌠🌙😘
+* [30 May 2020](https://web.archive.org/web/20200530102250/https://twitter.com/_Black_Stag_/status/1266620333953478657): Nigger  https://twitter.com/carissasobota/status/1266620190445445120
+* [30 May 2020](https://web.archive.org/web/20200530113952/https://twitter.com/_Black_Stag_/status/1266619581637865473): BREAKING: Niggers pull a nigger out of his car and begin beating him on the streets In Dallas https://twitter.com/ElijahSchaffer/status/1266614898219462657
+* [30 May 2020](https://web.archive.org/web/20200530065652/https://twitter.com/_Black_Stag_/status/1266617955426525184): He dindu nufin https://twitter.com/vjshadow09/status/1266602453925089280
+* [30 May 2020](https://web.archive.org/web/20200530130819/https://twitter.com/_Black_Stag_/status/1266617463841492992): I think I said nigger one too many times. Or maybe it was kike. I can't keep track anymore. Geez. 😆
+* [30 May 2020](https://web.archive.org/web/20200530064402/https://twitter.com/_Black_Stag_/status/1266602114538594305): Lol.
+* [30 May 2020](https://web.archive.org/web/20200530053955/https://twitter.com/_Black_Stag_/status/1266601862054084608): Lmao! 🤣
+* [30 May 2020](https://web.archive.org/web/20200530061746/https://twitter.com/_Black_Stag_/status/1266601484340232193): Lmao.
+* [30 May 2020](https://web.archive.org/web/20200530074650/https://twitter.com/_Black_Stag_/status/1266601041224597505): Vern... you're a dipshit fed, Vern.   Go back to school. You suck at this.  @vern58808021  pic.twitter.com/4b6sf7qD4Q
+* [30 May 2020](https://web.archive.org/web/20200530062813/https://twitter.com/_Black_Stag_/status/1266599855113134081): @RadioactiveRedn   ❤ pic.twitter.com/hZtRgIBUCb
+* [30 May 2020](https://web.archive.org/web/20200530082501/https://twitter.com/_Black_Stag_/status/1266598592963162112): Vern doesn't know who he's talking to.   Amateur. 😏 pic.twitter.com/OeD6CWAtk3
+* [30 May 2020](https://web.archive.org/web/20200530100806/https://twitter.com/_Black_Stag_/status/1266586936241606656): HEY, WHITE-AMERICAN MEN!!  Our country is being destroyed by feral niggers.  I repeat.  Our country is being destroyed by feral niggers.
+* [30 May 2020](https://web.archive.org/web/20200530054706/https://twitter.com/_Black_Stag_/status/1266585378099609606): Yay!! Make sure the phones are working this time! 😁😘
+* [30 May 2020](https://web.archive.org/web/20200530070535/https://twitter.com/_Black_Stag_/status/1266583431191785473): Ryan has issues pic.twitter.com/MTp7ZTUPMm
+* [30 May 2020](https://web.archive.org/web/20200530065238/https://twitter.com/_Black_Stag_/status/1266579992646840325): Just remember:  Niggers wouldn't be destroying your country if JEWS hadn't brought them here.
+* [30 May 2020](https://web.archive.org/web/20200530094527/https://twitter.com/_Black_Stag_/status/1266576309318070278): 😝
+* [30 May 2020](https://web.archive.org/web/20200530094527/https://twitter.com/_Black_Stag_/status/1266576309318070278): No. pic.twitter.com/xpGnE77uoB
+* [30 May 2020](https://web.archive.org/web/20200530083646/https://twitter.com/_Black_Stag_/status/1266575496378085376): BEEP BEEP CAR
+* [30 May 2020](https://web.archive.org/web/20200530052953/https://twitter.com/_Black_Stag_/status/1266574263911211009): Don't ever let them try to convince you that military weapons are more effective than a man with an AR-15 and a good pair of boots. https://twitter.com/BreakingNAlerts/status/1266567557202563072
+* [30 May 2020](https://web.archive.org/web/20200530050010/https://twitter.com/_Black_Stag_/status/1266572470229692417): 59 IQ
+* [30 May 2020](https://web.archive.org/web/20200530064837/https://twitter.com/_Black_Stag_/status/1266571822700441600): IGGER
+* [30 May 2020](https://web.archive.org/web/20200530062118/https://twitter.com/_Black_Stag_/status/1266571190715310085): IQ: Equatorial Guinea  Retards are smarter than this dumb nigger. https://twitter.com/maameseiwaaaa/status/1266570491579555840
+* [30 May 2020](https://web.archive.org/web/20200530183139/https://twitter.com/_Black_Stag_/status/1266540665724235776): pic.twitter.com/j71pUkbyB7
+* [30 May 2020](https://web.archive.org/web/20200530052221/https://twitter.com/_Black_Stag_/status/1266569822524956672): Damn animals.
+* [30 May 2020](https://web.archive.org/web/20200530075226/https://twitter.com/_Black_Stag_/status/1266569011212382209): If you're going to appropriate my language (like you do everything else), at least learn how to speak it correctly.
+* [30 May 2020](https://web.archive.org/web/20200530095634/https://twitter.com/_Black_Stag_/status/1266568479148109824): All I wanted was a nigger-free night, but nooo...  https://twitter.com/maameseiwaaaa/status/1266566060750393344  pic.twitter.com/CqWh0qUBCE
+* [30 May 2020](https://web.archive.org/web/20200530054414/https://twitter.com/_Black_Stag_/status/1266565775361323008): Lol. Thank you. 😄
+* [30 May 2020](https://web.archive.org/web/20200530075035/https://twitter.com/_Black_Stag_/status/1266565425489309696): Stupid ass nigger https://twitter.com/ManManDontDoIt/status/1266555203353968640
+* [30 May 2020](https://web.archive.org/web/20200530095216/https://twitter.com/_Black_Stag_/status/1266565300582887424): Yo momma
+* [30 May 2020](https://web.archive.org/web/20200530183139/https://twitter.com/_Black_Stag_/status/1266540665724235776): American Looters vs Indian Looters  Hmm.. not seeing much of difference, really. pic.twitter.com/tK8kTVhNMS
+* [30 May 2020](https://web.archive.org/web/20200530064608/https://twitter.com/_Black_Stag_/status/1266538286920548353): Dis a niggacaust!
+* [30 May 2020](https://web.archive.org/web/20200530064608/https://twitter.com/_Black_Stag_/status/1266538286920548353): jews have them well trained
+* [30 May 2020](https://web.archive.org/web/20200530092721/https://twitter.com/_Black_Stag_/status/1266531983259099136): Good idea. I haven't made it past 250 since about 75 accounts ago. Lol
+* [30 May 2020](https://web.archive.org/web/20200530132926/https://twitter.com/_Black_Stag_/status/1266530690234900480): 😘
+* [30 May 2020](https://web.archive.org/web/20200530072959/https://twitter.com/_Black_Stag_/status/1266531564373946368): It's more fun to use the N word. 😆
+* [30 May 2020](https://web.archive.org/web/20200530042816/https://twitter.com/_Black_Stag_/status/1266531800551026688): Lol
+* [30 May 2020](https://web.archive.org/web/20200530072959/https://twitter.com/_Black_Stag_/status/1266531564373946368): Let's call it what it is... the NQ (nigger question)
+* [30 May 2020](https://web.archive.org/web/20200530132926/https://twitter.com/_Black_Stag_/status/1266530690234900480): Thank you, darlin. 🤗💕
+* [30 May 2020](https://web.archive.org/web/20200530082914/https://twitter.com/_Black_Stag_/status/1266530527915372547): Remind me again who controls the media. ✡
+* [30 May 2020](https://web.archive.org/web/20200530064323/https://twitter.com/_Black_Stag_/status/1266526297808723969): I'll be there for you next time, don't you worry. 😁
+* [30 May 2020](https://web.archive.org/web/20200530054243/https://twitter.com/_Black_Stag_/status/1266527144315727872): What's that joke?  How do you restrain a nigger?  Put velcro on the ceiling, then give him a trampoline.  Something like that. Lol.
+* [30 May 2020](https://web.archive.org/web/20200530051640/https://twitter.com/_Black_Stag_/status/1266521461482651648): What can I say? Everyone loves me. 😌  😜
+* [30 May 2020](https://web.archive.org/web/20200530075758/https://twitter.com/_Black_Stag_/status/1266525423782948867): Black Math - Lion https://youtu.be/5Yb1FWz8_Pc
+* [30 May 2020](https://web.archive.org/web/20200530060704/https://twitter.com/_Black_Stag_/status/1266520828595716096): Got the gas. The usual. Need your girl to come sniff out the ✡ rats responsible.
+* [30 May 2020](https://web.archive.org/web/20200530054906/https://twitter.com/_Black_Stag_/status/1266521127808983040): They would if it was a mob of White men.
+* [30 May 2020](https://web.archive.org/web/20200530095353/https://twitter.com/_Black_Stag_/status/1266519879860903936): 😘
+* [30 May 2020](https://web.archive.org/web/20200530115839/https://twitter.com/_Black_Stag_/status/1266519461969883136): Follow me back, silly. 🤪🤓
+* [29 May 2020](https://web.archive.org/web/20200530115839/https://twitter.com/_Black_Stag_/status/1266519461969883136): He'll never shoot his precious dindus.  That's why there are no mags in these rifles. pic.twitter.com/KTM8LofGIE
+* [29 May 2020](https://web.archive.org/web/20200530052712/https://twitter.com/_Black_Stag_/status/1266518835533737984): Due to rioting niggers. https://twitter.com/Breaking911/status/1266518392837738496
+* [29 May 2020](https://web.archive.org/web/20200530090351/https://twitter.com/_Black_Stag_/status/1266518148007604224): Nigger-skin wallets and chairs is pretty much equivalent to kike-skin lamps. Lol
+* [29 May 2020](https://web.archive.org/web/20200530043905/https://twitter.com/_Black_Stag_/status/1266507644237312000): There's a reason jews and niggers get along so well. They're excellent story tellers. https://twitter.com/KeNaiyaa/status/1266035473828458502
+* [29 May 2020](https://web.archive.org/web/20200530083046/https://twitter.com/_Black_Stag_/status/1266503832843902976): BEEP BEEP TRUCK https://twitter.com/Squatch_XXL/status/1266503284887617542
+* [29 May 2020](https://web.archive.org/web/20200530122019/https://twitter.com/_Black_Stag_/status/1266452734196113408): Aww. Thank you. 😊💕
+* [29 May 2020](https://web.archive.org/web/20200530044328/https://twitter.com/_Black_Stag_/status/1266498791894421504): Ahem. 🧐
+* [29 May 2020](https://web.archive.org/web/20200530143044/https://twitter.com/_Black_Stag_/status/1266493651451932672): Aww. Thank you. Likewise. I love my twitter family. 🤗❤
+* [29 May 2020](https://web.archive.org/web/20200530120950/https://twitter.com/_Black_Stag_/status/1266493427803279360): 🤗💕😘
+* [29 May 2020](https://web.archive.org/web/20200530120950/https://twitter.com/_Black_Stag_/status/1266493427803279360): Excuse me. Why haven't you followed me back yet? 😏 pic.twitter.com/AGy96UfIJE
+* [29 May 2020](https://web.archive.org/web/20200530143044/https://twitter.com/_Black_Stag_/status/1266493651451932672): I'm probably already shadowbanned. Doesn't take long
+* [29 May 2020](https://web.archive.org/web/20200530044350/https://twitter.com/_Black_Stag_/status/1266482057284161536): I love your sick sense of humor. It's why you're in my top 5. 😁
+* [29 May 2020](https://web.archive.org/web/20200530143044/https://twitter.com/_Black_Stag_/status/1266493651451932672): Yes. I followed you already.
+* [29 May 2020](https://web.archive.org/web/20200530143044/https://twitter.com/_Black_Stag_/status/1266493651451932672): A truck ran over some protesters last night. Lol. When the video was posted, someone commented "beep beep, truck", so everyone else did too. I must have laughed for a straight hour.
+* [29 May 2020](https://web.archive.org/web/20200530094357/https://twitter.com/_Black_Stag_/status/1266473356578054144): Lol
+* [29 May 2020](https://web.archive.org/web/20200530052141/https://twitter.com/_Black_Stag_/status/1266473282213052416): Thank you. 🤗💕
+* [29 May 2020](https://web.archive.org/web/20200530063645/https://twitter.com/_Black_Stag_/status/1266463294635687936): Lmao!!
+* [29 May 2020](https://web.archive.org/web/20200530063645/https://twitter.com/_Black_Stag_/status/1266463294635687936): Not a good way to go out. Just ask your local holocaust survivor.
+* [29 May 2020](https://web.archive.org/web/20200530063645/https://twitter.com/_Black_Stag_/status/1266463294635687936): BEEP BEEP, TRUCK!  Wut up, my nigga? 🤗
+* [29 May 2020](https://web.archive.org/web/20200530122019/https://twitter.com/_Black_Stag_/status/1266452734196113408): BEEP BEEP TRUCK, YA DUMB NIGGERS! pic.twitter.com/Gx5xw98f9U
+* [ 7 March 2020](https://web.archive.org/web/20200307080517/https://twitter.com/_black_stag_/status/1236165378633539584): We live in an inverted reality
+* [ 7 March 2020](https://web.archive.org/web/20200307023925/https://twitter.com/_black_stag_/status/1236114865485426689): Me too
+* [28 February 2020](https://web.archive.org/web/20200228094130/https://twitter.com/_black_stag_/status/1233322816004640768): Bonne nuit. Comment ça va, mon ami?
+* [28 February 2020](https://web.archive.org/web/20200228094130/https://twitter.com/_black_stag_/status/1233322816004640768): Notice how this jew said nothing about making anti-Christianity illegal. That's perfectly acceptable to him. https://twitter.com/YardleyShooting/status/1233035794631315457
+* [28 February 2020](https://web.archive.org/web/20200228051824/https://twitter.com/_black_stag_/status/1233256943965409280): I'm asking if anyone else knows.
+* [28 February 2020](https://web.archive.org/web/20200228051824/https://twitter.com/_black_stag_/status/1233256943965409280): How European are the Spanish, French and Italians?  (I'm talking about DNA) I really don't know.
+* [28 February 2020](https://web.archive.org/web/20200228045410/https://twitter.com/_black_stag_/status/1233250986547957760): Not that I would ever stop caring. It would just be nice to hear a "hey, thanks for all of your support" every now and then.
+* [28 February 2020](https://web.archive.org/web/20200228045410/https://twitter.com/_black_stag_/status/1233250986547957760): Sometimes it gets tiring giving a shit about people who act like they could care less that you do.
+* [26 February 2020](https://web.archive.org/web/20200226154433/https://twitter.com/_black_stag_/status/1232688321400360960): Notice how they're telling everyone to "load up on gold and silver, load up on bitcoin."   News Flash: You can't eat gold, silver, or bitcoin.   Load up on food and ammo!
+* [26 February 2020](https://web.archive.org/web/20200226095559/https://twitter.com/_black_stag_/status/1232605219428671489): *sigh* https://t.co/1krEbtqndP
+* [26 February 2020](https://web.archive.org/web/20200226060135/https://twitter.com/_black_stag_/status/1232544524146270209): Shadowbanned. No one can see me. So i'm just posting some cool music. 🤪
+* [25 February 2020](https://web.archive.org/web/20200225235804/https://twitter.com/_black_stag_/status/1232449879634366464): This website is gay.
+* [25 February 2020](https://web.archive.org/web/20200225092804/https://twitter.com/_black_stag_/status/1232222571061481473): 😘
+* [25 February 2020](https://web.archive.org/web/20200225092804/https://twitter.com/_black_stag_/status/1232222571061481473): Targeted harassment is a violation of TOS.  #DeplatformJews .   Report and block. 👇 https://twitter.com/antifajune/status/1232221914791321600
+* [25 February 2020](https://web.archive.org/web/20200225051442/https://twitter.com/_black_stag_/status/1232156859672547328): Who didn't like Ren and Stimpy? Lol
+* [25 February 2020](https://web.archive.org/web/20200225051442/https://twitter.com/_black_stag_/status/1232156859672547328): pic.twitter.com/1djYCVJ1IR
+* [25 February 2020](https://web.archive.org/web/20200225070020/https://twitter.com/_black_stag_/status/1232139198376939520): @Le_Derangeur  🤣 https://twitter.com/JFNYC1/status/1232038729314906112
+* [25 February 2020](https://web.archive.org/web/20200225042807/https://twitter.com/_black_stag_/status/1232138321893175297): Rerouted while on his way to jail.  How conveniently jewish. https://twitter.com/NBCNews/status/1232111728277671937
+* [25 February 2020](https://web.archive.org/web/20200225001242/https://twitter.com/_black_stag_/status/1232096043506053122): @FrenReport https://t.co/s7U0nA4wju
+* [24 February 2020](https://web.archive.org/web/20200224064816/https://twitter.com/_black_stag_/status/1231829069626564608): $50 says they "forget" about China and start blaming new outbreaks on Iran.  They never let a good opportunity go to waste. https://twitter.com/BNODesk/status/1231828141175377920
+* [24 February 2020](https://web.archive.org/web/20200224062750/https://twitter.com/_black_stag_/status/1231828061030690816): @EIRANN_LL I like that band. They're from Italy. ;)
+* [24 February 2020](https://web.archive.org/web/20200224054425/https://twitter.com/_black_stag_/status/1231811271344951297): Tired of being shadowbanned. Maybe I'll watch 28 Days Later. 😈☠
+* [24 February 2020](https://web.archive.org/web/20200224035342/https://twitter.com/_black_stag_/status/1231785674401107969): In 2011, the South Korean Ambassador to Israel said on Israeli public television that “each Korean family has at least one copy of the Talmud.”  Koreans are jews.  https://twitter.com/MisterAntiBully/status/1231773102641733636  pic.twitter.com/YykmHkQxrq
+* [24 February 2020](https://web.archive.org/web/20200224031508/https://twitter.com/_black_stag_/status/1231774643788353536): Yes everyone. Socialism works better. Just ask all the Canadians who come to America for surgery because they've been forced to wait months for medical care. 😏  https://twitter.com/apolitical367/status/1231726213179301890  pic.twitter.com/uhskb7R96L
+* [23 February 2020](https://web.archive.org/web/20200223123913/https://twitter.com/_black_stag_/status/1231554946903838726): I love good music. It's my only vice. I've always got something playing. I can be in the worst mood, turn some music on, and my mood changes almost instantly. Music makes me happy. 🙃 🤗
+* [23 February 2020](https://web.archive.org/web/20200223093238/https://twitter.com/_black_stag_/status/1231508508442447872): This kid doesn't even understand English. He has no clue what's being said to him. 🤣  "Just go up there and shake your head every now and then. We'll give you $5." https://twitter.com/Breaking911/status/1231485332702531584
+* [23 February 2020](https://web.archive.org/web/20200223073818/https://twitter.com/_black_stag_/status/1231482144423370754): Why is twitter so boring lately?
+* [23 February 2020](https://web.archive.org/web/20200223045820/https://twitter.com/_black_stag_/status/1231438765207511040): Any time. 😉
+* [23 February 2020](https://web.archive.org/web/20200223045820/https://twitter.com/_black_stag_/status/1231438765207511040): Give this friend a follow 👇 https://twitter.com/DumpAndDestroy/status/1231409717844508672
+* [22 February 2020](https://web.archive.org/web/20200222041111/https://twitter.com/_black_stag_/status/1231066246617214976): https://youtu.be/iGw6gWNh3qQ
+* [22 February 2020](https://web.archive.org/web/20200222035201/https://twitter.com/_black_stag_/status/1231060410503176192): "Is it not excessively ridiculous to seek the good opinion of those whom you would never wish to be like?" - St. John Chrysostom  So... why do you seek the opinion of jews? pic.twitter.com/zsT0So0zE4
+* [22 February 2020](https://web.archive.org/web/20200222012552/https://twitter.com/_black_stag_/status/1231024505612578816): Disturbing. The sheep need to be culled. 🐑 https://twitter.com/Inevitable_ET/status/1228484382438154241
+* [21 February 2020](https://web.archive.org/web/20200221142832/https://twitter.com/_black_stag_/status/1230842092475363329): Have a great day, y'all. 😎 pic.twitter.com/Tg7igLgcr7
+* [21 February 2020](https://web.archive.org/web/20200221112059/https://twitter.com/_black_stag_/status/1230812655818092546): Will the enemies of God finally be getting a visit from Him?   Time will tell. Tick tock. https://twitter.com/BNODesk/status/1230810772126785537
+* [21 February 2020](https://web.archive.org/web/20200221055233/https://twitter.com/_black_stag_/status/1230726460723220480): How long til we start seeing videos of nogs beating the shit out of each other because KFC decided to sell a chicken flavored one? 🍗 https://twitter.com/darrenrovell/status/1230557724884078592
+* [21 February 2020](https://web.archive.org/web/20200221025841/https://twitter.com/_black_stag_/status/1230678323157753858): Viva la France.
+* [21 February 2020](https://web.archive.org/web/20200221025841/https://twitter.com/_black_stag_/status/1230678323157753858): This is one of my favorite photos. The pure joy on her face is priceless. Adorable. 💕 https://twitter.com/FrenchHist/status/1230519935786528772
+* [21 February 2020](https://web.archive.org/web/20200221005848/https://twitter.com/_black_stag_/status/1230650763174645763): May God strike down each and every one of these filthy, jewish blasphemers. Clock is ticking. https://christiansfortruth.com/jews-demand-that-bible-be-censored-because-it-portrays-them-as-they-really-are/?fbclid=IwAR1zCLlex0AXhLgnMwlvkJ_KO-xK-LaFSE2pQmEfnQhrLXMVlBU2PDn_3Qc
+* [20 February 2020](https://web.archive.org/web/20200220235558/https://twitter.com/_black_stag_/status/1230642280945606656): @redscarf76 @EIRANN_LL fans - nah  frens - yea  😁
+* [20 February 2020](https://web.archive.org/web/20200310202225/https://twitter.com/_black_stag_/status/1230637639470067717): Alex Jones is a jew.   Rick Wiles is controlled op and probably a jew.   Nick Fuentes is a jew.   Andrew Torba is a jew.  Nice try, shlomo.
+* [20 February 2020](https://web.archive.org/web/20200220120317/https://twitter.com/_black_stag_/status/1230458153663373312): I'm shadowbanned, so I'm posting whatever I want. pic.twitter.com/tP3QlgYFWp
+* [20 February 2020](https://web.archive.org/web/20200220102106/https://twitter.com/_black_stag_/status/1230428411291717632): Anyone seen the new (((2020 Census))) commercial?   "We all count. No matter where we call home, how we worship, or who we love."    #CulturalMarxismIsJewish  https://youtu.be/wLFjPTogMIs
+* [19 February 2020](https://web.archive.org/web/20200219092526/https://twitter.com/_black_stag_/status/1230055137873408001): I can't stop coughing and my ear drums feel like they're going to explode. 😫  Maybe it's corona and i'm dying. pic.twitter.com/YMjiGySedj
+* [19 February 2020](https://web.archive.org/web/20200219062133/https://twitter.com/_black_stag_/status/1230008412731211776): @atsumori5834  Hello, Atsumori san. 🤗
+* [19 February 2020](https://web.archive.org/web/20200219061302/https://twitter.com/_black_stag_/status/1230006713669038082): The jew is compelled.   It was sent here. Can't stay off my page now. Keeps throwing hashtags in my tweets. Trying to draw negative attention to my page. That's ok. She's only leading them to the truth. Not the brightest one I've ever seen. 😆 pic.twitter.com/c1GUpPoWE3
+* [19 February 2020](https://web.archive.org/web/20200219052854/https://twitter.com/_black_stag_/status/1229994550262890497): Point proven. Post deleted. Lol. pic.twitter.com/kNTj5sCKIi
+* [19 February 2020](https://web.archive.org/web/20200219052854/https://twitter.com/_black_stag_/status/1229994550262890497): Can't back up what it says. Knows the Bible disproves its claims. Can't use it. Ad hominem is all its got.  You got burned, little viper. Slither off now. https://twitter.com/Kimmi333/status/1229993908484136960
+* [19 February 2020](https://web.archive.org/web/20200219045615/https://twitter.com/_black_stag_/status/1229986197059129344): Why is this venom-spewing JEW in my mentions?   It doesn't know who it's dealing with.   Bring it, viper. You'll regret it. https://twitter.com/Kimmi333/status/1229984502207983616
+* [19 February 2020](https://web.archive.org/web/20200219030728/https://twitter.com/_black_stag_/status/1229965697746440199): @SnowDuchess1 @EIRANN_LL 😁 https://t.co/HkOAdqoPUN
+* [17 February 2020](https://web.archive.org/web/20200217235556/https://twitter.com/_black_stag_/status/1229537818034176000): Exact!
+* [17 February 2020](https://web.archive.org/web/20200217235556/https://twitter.com/_black_stag_/status/1229537818034176000): Antisemitism is the highest it's been in this country for decades.  "I'm a Bolshevik jew. Vote for me!"   Lol. Idiot. https://twitter.com/TimesofIsrael/status/1229537016011874304
+* [17 February 2020](https://web.archive.org/web/20200217130241/https://twitter.com/_black_stag_/status/1229370781232238593): @ignaciolugo  Buenos días. Como estas? 😊
+* [17 February 2020](https://web.archive.org/web/20200217065627/https://twitter.com/_black_stag_/status/1229292088048570368): Of course. Dauphin Island, Daphne, Fairhope, Foley, Orange Beach... Pensacola on occasion to go canoeing. 😊
+* [17 February 2020](https://web.archive.org/web/20200217064440/https://twitter.com/_black_stag_/status/1229290293209464832): Mobile Bay 😍 pic.twitter.com/ZtbtSFi6lj
+* [17 February 2020](https://web.archive.org/web/20200217061814/https://twitter.com/_black_stag_/status/1229286566167797760): Did you ever see that movie? Just looking at the kid reminded of the part where the grandmother calls her a "damn animal" for eating candy off the floor. Lol.
+* [17 February 2020](https://web.archive.org/web/20200217070641/https://twitter.com/_black_stag_/status/1229285238607634432): pic.twitter.com/SrTCtK7YMc
+* [17 February 2020](https://web.archive.org/web/20200217061707/https://twitter.com/_black_stag_/status/1229284152803020801): pic.twitter.com/42HMjSZEOk
+* [17 February 2020](https://web.archive.org/web/20200217060329/https://twitter.com/_black_stag_/status/1229283018310901761): 🤪
+* [17 February 2020](https://web.archive.org/web/20200217060537/https://twitter.com/_black_stag_/status/1229282522326085632): I'm really mean sometimes. 😈
+* [17 February 2020](https://web.archive.org/web/20200217062018/https://twitter.com/_black_stag_/status/1229282152279355392): "animal"  https://twitter.com/CNN/status/1229280594535776256  pic.twitter.com/9n6OLLTCtQ
+* [17 February 2020](https://web.archive.org/web/20200217061057/https://twitter.com/_black_stag_/status/1229279754815180802): 🤣
+* [17 February 2020](https://web.archive.org/web/20200217062640/https://twitter.com/_black_stag_/status/1229278381168103425): Completely understandable. Lol.
+* [17 February 2020](https://web.archive.org/web/20200217062640/https://twitter.com/_black_stag_/status/1229278381168103425): There's a reason women prefer boxer-briefs, but I'll refrain from saying what it is. 😜
+* [17 February 2020](https://web.archive.org/web/20200217055858/https://twitter.com/_black_stag_/status/1229271148040421376): My White, European ancestors came to America to build a homeland for themselves and their posterity. It wasn't built so the rest of the world could later come and pillage and destroy it.
+* [17 February 2020](https://web.archive.org/web/20200217054447/https://twitter.com/_black_stag_/status/1229263705369694208): Never cared for fiction either. I did like the Nancy Drew series though. Got me through the tween years. :)
+* [17 February 2020](https://web.archive.org/web/20200217045328/https://twitter.com/_black_stag_/status/1229261557986664448): I was just kidding. 🙃 I didn't read fiction as a kid. I read the Encyclopedia Britannica (from A-Z), and history books for fun.
+* [17 February 2020](https://web.archive.org/web/20200217045328/https://twitter.com/_black_stag_/status/1229261557986664448): pic.twitter.com/VYj5CsloFw
+* [17 February 2020](https://web.archive.org/web/20200217043957/https://twitter.com/_black_stag_/status/1229253788340453378): Neither should California
+* [17 February 2020](https://web.archive.org/web/20200217042105/https://twitter.com/_black_stag_/status/1229251873187803136): No fair, no fair. 😜
+* [17 February 2020](https://web.archive.org/web/20200217033424/https://twitter.com/_black_stag_/status/1229247700027236354): @haaretzcom @KToltz Communism (Democrats) and Zionism (Republicans) - Connected for good.  Both jewish
+* [17 February 2020](https://web.archive.org/web/20200217034835/https://twitter.com/_black_stag_/status/1229237622343684097): Attention: We've got a 13-50 in progress.
+* [17 February 2020](https://web.archive.org/web/20200217040255/https://twitter.com/_black_stag_/status/1229236238458261504): Who wants your  #2A  rights stripped from you, America?   Fortunately, jews don't speak for Americans. pic.twitter.com/duyXAUGMyQ
+* [17 February 2020](https://web.archive.org/web/20200217022240/https://twitter.com/_black_stag_/status/1229226868609560578): https://youtu.be/FQNFcYvILJE
+* [17 February 2020](https://web.archive.org/web/20200217031858/https://twitter.com/_black_stag_/status/1229220453056753665): Their souls are "divine". Didn't you know? 😏 pic.twitter.com/gclVsUDT1N
+* [16 February 2020](https://web.archive.org/web/20200216230919/https://twitter.com/_black_stag_/status/1229177682618933249): It's beautiful. 😋
+* [16 February 2020](https://web.archive.org/web/20200216230919/https://twitter.com/_black_stag_/status/1229177682618933249): Be specific. For dinner I'm cooking garlic chicken with basmati rice and a side of fresh berries and salad. 😋
+* [16 February 2020](https://web.archive.org/web/20200217000940/https://twitter.com/_black_stag_/status/1229177050730303488): For...?
+* [16 February 2020](https://web.archive.org/web/20200217015324/https://twitter.com/_black_stag_/status/1229176143359725573): pic.twitter.com/SuoI3Jpj0C
+* [16 February 2020](https://web.archive.org/web/20200216231845/https://twitter.com/_black_stag_/status/1229175021962252288): pic.twitter.com/wqJac68zSs
+* [16 February 2020](https://web.archive.org/web/20200216232700/https://twitter.com/_black_stag_/status/1229173548515762192): You cheated. You can't use an fat dude to prove a point. Lol.   I think boxer-briefs are hot. That's my vote. pic.twitter.com/fIo3RLOuGu
+* [16 February 2020](https://web.archive.org/web/20200216223853/https://twitter.com/_black_stag_/status/1229171293213380616): Be kind. Let your foreign neighbor in to pillage your home, take everything you've worked for, take food from your childrens' mouths, rape your wife, sleep in your bed, and replace you. They'll be calling him 'daddy' before long. Don't say a word. Be kind.
+* [16 February 2020](https://web.archive.org/web/20200216223519/https://twitter.com/_black_stag_/status/1229169041031487488): They're called jews.
+* [16 February 2020](https://web.archive.org/web/20200216224848/https://twitter.com/_black_stag_/status/1229167581501837312): Poll the ladies and see.
+* [16 February 2020](https://web.archive.org/web/20200216221950/https://twitter.com/_black_stag_/status/1229166867337678850): Midwest. Everyone wants be Southern. Smh.
+* [16 February 2020](https://web.archive.org/web/20200216154426/https://twitter.com/_black_stag_/status/1229063153507590144): Lmao. pic.twitter.com/YwjQMO1dsD
+* [16 February 2020](https://web.archive.org/web/20200216180302/https://twitter.com/_black_stag_/status/1229061199574241282): I don't think it's the fracking... pic.twitter.com/X7PEe2Lu4R
+* [16 February 2020](https://web.archive.org/web/20200216133100/https://twitter.com/_black_stag_/status/1229030016111042561): Ball point pens
+* [16 February 2020](https://web.archive.org/web/20200216125441/https://twitter.com/_black_stag_/status/1229024420154499073): jews and their fairy tales.
+* [16 February 2020](https://web.archive.org/web/20200216125114/https://twitter.com/_black_stag_/status/1229023756577918976): No one just "starts hating jews".   They've been expelled from every country they've ever inhabited (109, to be exact).   This is an historical fact. With semitism comes antisemitism. Perhaps a bit of self-reflection is in order, hm?
+* [16 February 2020](https://web.archive.org/web/20200216122334/https://twitter.com/_black_stag_/status/1229016176547835904): Hi. Hope you're doing ok. Miss ya. 😊
+* [16 February 2020](https://web.archive.org/web/20200216114627/https://twitter.com/_black_stag_/status/1229007344312385536): Dirty blood.
+* [16 February 2020](https://web.archive.org/web/20200216114310/https://twitter.com/_black_stag_/status/1229007036194619392): What's it like knowing you'll never be White?   What did Rowling call it in the Harry Potter series... a mudblood? Yep. That's right. She would know all about that too, wouldn't she? 😆
+* [16 February 2020](https://web.archive.org/web/20200216112542/https://twitter.com/_black_stag_/status/1228998694541852672): You understand what "global pogroms" means, don't you?   Have fun thinking about it. 😁
+* [16 February 2020](https://web.archive.org/web/20200216110743/https://twitter.com/_black_stag_/status/1228996426929201152): Fascists didn't eradicate any ethnicity. Neither did Hitler/National Socialists.  Bolshevik jews did, though. 200+ million in the last century alone. Ever heard of the Holodomor genocide? Look it up.
+* [16 February 2020](https://web.archive.org/web/20200216110201/https://twitter.com/_black_stag_/status/1228995457801687041): History says otherwise. You do know your history, don't you? You know what a pogrom is? I'm sure you do. Problem is... this time they'll be global. 😬 ⌛
+* [16 February 2020](https://web.archive.org/web/20200216105159/https://twitter.com/_black_stag_/status/1228993959944478721): Shoo, jew. I've got better things to do than talk to you. Get back to your Talmud.   Abodah Zara 26b: "Even the best of the Gentiles should be killed."
+* [16 February 2020](https://web.archive.org/web/20200216104541/https://twitter.com/_black_stag_/status/1228993145674895361): You prove my original point by saying you want all White people dead, but i'm the one with the repugnant ideology. Lmao. You just can't help yourselves. Thanks for showing everyone what you really are.   109 countries.
+* [16 February 2020](https://web.archive.org/web/20200216103850/https://twitter.com/_black_stag_/status/1228991876772114434): Thanks. That's a nice screenshot to add to my collection.  Keep digging your own pit, dummy.
+* [16 February 2020](https://web.archive.org/web/20200216103900/https://twitter.com/_black_stag_/status/1228991125152784385): Whites make up 6.5% of the GLOBAL population. That would make them the.... wait for it.... MINORITY.   No one is falling for your bullshit anymore. Try harder.
+* [16 February 2020](https://web.archive.org/web/20200216103900/https://twitter.com/_black_stag_/status/1228991125152784385): I've already done my research, which would explain your crying out in pain. 😆 Tick tock, tick tock..
+* [16 February 2020](https://web.archive.org/web/20200216103208/https://twitter.com/_black_stag_/status/1228989206900432896): No.   Scared of your own history? Fact is fact. You can't hide from it. Nothing can change what's coming. History repeats. You will always be your own worst enemy.
+* [16 February 2020](https://web.archive.org/web/20200216104150/https://twitter.com/_black_stag_/status/1228983443771576321): pic.twitter.com/RglbNmVgzK
+* [16 February 2020](https://web.archive.org/web/20200216095451/https://twitter.com/_black_stag_/status/1228979693640134656): https://youtu.be/1ZJwRslmhe0
+* [16 February 2020](https://web.archive.org/web/20200216084506/https://twitter.com/_black_stag_/status/1228961630328889344): No one just "starts hating jews".  They've been expelled from every country they've ever inhabited (109, to be exact).   This is an historical fact. With semitism comes antisemitism. Perhaps a bit of self-reflection is in order, hm?
+* [16 February 2020](https://web.archive.org/web/20200216080225/https://twitter.com/_black_stag_/status/1228952030372417543): And?
+* [16 February 2020](https://web.archive.org/web/20200216080349/https://twitter.com/_black_stag_/status/1228949534761455616): Tick tock ⌛
+* [16 February 2020](https://web.archive.org/web/20200216075349/https://twitter.com/_black_stag_/status/1228948512496373760): Here's to hoping they're as susceptible to it as the Chinese are. 🥂
+* [16 February 2020](https://web.archive.org/web/20200216074445/https://twitter.com/_black_stag_/status/1228946390946058241): The British "royals" are all jews. https://www.telegraph.co.uk/comment/10201882/Circumcision-is-one-of-the-oddities-of-the-Royal-Family.html
+* [16 February 2020](https://web.archive.org/web/20200216070941/https://twitter.com/_black_stag_/status/1228938791064408064): https://youtu.be/LvXoB1S45j0
+* [16 February 2020](https://web.archive.org/web/20200216065343/https://twitter.com/_black_stag_/status/1228932465621905408): If she doesn't love it she's a .. https://youtu.be/9dRGBjybDSU
+* [16 February 2020](https://web.archive.org/web/20200216065222/https://twitter.com/_black_stag_/status/1228930372974628864): Have you ever listened to any of the Dark Country Albums? I think you'd like them.
+* [16 February 2020](https://web.archive.org/web/20200216065222/https://twitter.com/_black_stag_/status/1228930372974628864): Lol
+* [16 February 2020](https://web.archive.org/web/20200216063314/https://twitter.com/_black_stag_/status/1228930243945209857): Don't forget this one... https://youtu.be/xd0TGfZSACI
+* [16 February 2020](https://web.archive.org/web/20200216063940/https://twitter.com/_black_stag_/status/1228929632537325568): I think your music thread is the only interesting thing on jwitter tonight. :)
+* [16 February 2020](https://web.archive.org/web/20200216062250/https://twitter.com/_black_stag_/status/1228926325626429442): https://youtu.be/_wxcWLgOfNA
+* [16 February 2020](https://web.archive.org/web/20200216061433/https://twitter.com/_black_stag_/status/1228922888016846848): Ya think? pic.twitter.com/5sw87VPD6f
+* [16 February 2020](https://web.archive.org/web/20200216060159/https://twitter.com/_black_stag_/status/1228920537340108806): https://youtu.be/-KT-r2vHeMM
+* [16 February 2020](https://web.archive.org/web/20200216060629/https://twitter.com/_black_stag_/status/1228919346828914694): https://youtu.be/3tQnlvtU3Xw
+* [16 February 2020](https://web.archive.org/web/20200216061548/https://twitter.com/_black_stag_/status/1228917491197456384): That was the best part about it. MORE MUSIC!
+* [16 February 2020](https://web.archive.org/web/20200216060103/https://twitter.com/_black_stag_/status/1228917287148806144): Same. Still have it tucked away in a box somewhere with all my other cds. :)
+* [16 February 2020](https://web.archive.org/web/20200216055047/https://twitter.com/_black_stag_/status/1228916819316158464): That whole album was good.
+* [16 February 2020](https://web.archive.org/web/20200216055614/https://twitter.com/_black_stag_/status/1228916036541566977): https://alt-right.com/2020/02/15/study-west-africans-are-partially-descended-from-apes/
+* [16 February 2020](https://web.archive.org/web/20200216050204/https://twitter.com/_black_stag_/status/1228905896182452229): Everyone forgets about the one-hit wonders. I'm not a fan of girl bands, but those two were pretty good.
+* [16 February 2020](https://web.archive.org/web/20200216050204/https://twitter.com/_black_stag_/status/1228905896182452229): 🙃 https://youtu.be/5nLLofBZr3o
+* [16 February 2020](https://web.archive.org/web/20200216050204/https://twitter.com/_black_stag_/status/1228905896182452229): https://youtu.be/GpBFOJ3R0M4
+* [16 February 2020](https://web.archive.org/web/20200216012832/https://twitter.com/_black_stag_/status/1228847839486390272): Should've left when the Iraqi people told them to get the hell out.
+* [16 February 2020](https://web.archive.org/web/20200216002313/https://twitter.com/_black_stag_/status/1228833199444365313): Every single time. ✡
+* [15 February 2020](https://web.archive.org/web/20200215152214/https://twitter.com/_black_stag_/status/1228692712020418560): I can see right through you.
+* [15 February 2020](https://web.archive.org/web/20200215140047/https://twitter.com/_black_stag_/status/1228673784359587840): Stop talking. No one listening.
+* [15 February 2020](https://web.archive.org/web/20200215124731/https://twitter.com/_black_stag_/status/1228657099841982465): There aren't any "true israelites or hebrews". Christians are Israel.
+* [15 February 2020](https://web.archive.org/web/20200215114710/https://twitter.com/_black_stag_/status/1228645586536144898): pic.twitter.com/J297PjGBdP
+* [15 February 2020](https://web.archive.org/web/20200215104405/https://twitter.com/_black_stag_/status/1228629672457592833): This is ANTISEMITIC!
+* [15 February 2020](https://web.archive.org/web/20200215104055/https://twitter.com/_black_stag_/status/1228628815645200386): Good luck with that. 😏
+* [15 February 2020](https://web.archive.org/web/20200215095507/https://twitter.com/_black_stag_/status/1228614982327296000): pic.twitter.com/ubSeexN0mu
+* [15 February 2020](https://web.archive.org/web/20200215083503/https://twitter.com/_black_stag_/status/1228598585333297158): I can see right through you.
+* [15 February 2020](https://web.archive.org/web/20200215073314/https://twitter.com/_black_stag_/status/1228578782828777477): Anyone who voted 'no' is lying.
