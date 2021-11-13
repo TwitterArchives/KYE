@@ -11,6 +11,8 @@ All tweets were publicly posted by the user and had a saved version located at a
 Note: List is incomplete and Twitter handles may have changed at points in time.
 
 
+[updated 2021-11-13]
+
 | #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
 | -- | ----------- | --------- | ----------------------- | ------------------- | ----------------------------- |
 | 1  | 2018-05-03  | Suspended | [@\_NameNotGiven\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/18-04%20to%2018-05%20_NameNotGiven_.md)       | 988966055497285632  | Know Your Enemy               |
