@@ -44,7 +44,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 27 | 2020-02-18  | Suspended | [@\_Luceo\_NonUro\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-02%20to%2020-02%20_Luceo_NonUro_.md)      | 37642998            | Know Your Enemy               |
 | 28 | 2020-02-19  | Suspended | [@\_blackstag\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-04%20to%2020-04%20_blackstag_.md)          | 1228518278689181699 | Know Your Enemy               |
 | 29 | 2020-05-12  | Suspended | [@\_\_End\_\_Game](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-03%20to%2020-05%20__End__Game.md)        | 1233884667704537092 | Know Your Enemy               |
-| 30 | 2020-04-01  | Suspended | [@\_End\_Game\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-03%20to%2020-05%20__End__Game.md)          | 1244567805095219200 | KYE                           |
+| 30 | 2020-04-01  | Suspended | [@\_End\_Game\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-02%20to%2020-05%20_End_Game_.md)          | 1244567805095219200 | KYE                           |
 | 31 | 2020-06-04  | Suspended | [@\_cremator\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-06%20_cremator_.md)           | 1268341963322843136 | Cremator 🔥                   |
 | 32 | 2020-06-12  | Suspended | [@\_Black\_Stag\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-02%20to%2020-06%20_Black_Stag_.md)        | 1266427274514980867 | Know Your Enemy               |
 | 33 | 2020-06-16  | Suspended | [@\_NotAfraid2Die\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-06%20_NotAfraid2Die_.md)      | 1269042918536310785 | Luceo Non Uro                 |
