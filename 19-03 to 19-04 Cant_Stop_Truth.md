@@ -1,9 +1,9 @@
-## Archived tweets for _CantStopTruth_
+## Archived tweets for \_CantStopTruth\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 11 archived tweets by
-[_CantStopTruth_](https://twitter.com/_CantStopTruth_).
+[\_CantStopTruth\_](https://twitter.com/_CantStopTruth_).
 
 
 
