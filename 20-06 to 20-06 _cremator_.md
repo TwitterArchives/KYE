@@ -1,7 +1,7 @@
-## Archived tweets for /_cremator/_
+## Archived tweets for \_cremator\_
 
 The list below includes 47 deleted tweets by
-[/_cremator/_](https://twitter.com/_cremator_).
+[\_cremator\_](https://twitter.com/_cremator_).
 
 
 
