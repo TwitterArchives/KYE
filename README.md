@@ -54,8 +54,8 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 37 | 2020-07-17  | Suspended | [@Time2Bleed](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-07%20to%2020-07%20Time2Bleed.md)             | 1278817039633862656 | Ichor                         |
 | 38 | 2020-08-25  | Suspended | [@Burn\_\_ln\_\_Hell\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-08%20to%2020-08%20Burn__ln__Hell_.md)   | 1283625134574772229 | Incinerator                   |
 | 39 | 2020-09-17  | Suspended | [@\_\_YourCrucible\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-08%20to%2020-08%20__YourCrucible_.md)     | 1291477616726220800 | † 𝕮𝖗𝖚𝖈𝖎𝖇𝖑𝖊 †          |
-| 40 | 2020-10-17  | Suspended | [@\_MilkNCookiez\_](https://github.com/TwitterArchives/KYE/commit/05c409da2d30597b3027f544bf0b046c5dd4588d)       | 1304586706838892544 | K.Y.E.                        |
-| 41 | 2020-10-29  | Suspended | @Cookiez\_N\_Milk\_     | 1312478326024364032 | 🦇 𝕂.𝕐.𝔼. 🦇               |
+| 40 | 2020-10-17  | Suspended | [@\_MilkNCookiez\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-09%20to%2020-10%20_MilkNCookiez_.md)       | 1304586706838892544 | K.Y.E.                        |
+| 41 | 2020-10-29  | Suspended | [@Cookiez\_N\_Milk\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-10%20to%2020-11%20Cookiez_N_Milk_.md)     | 1312478326024364032 | 🦇 𝕂.𝕐.𝔼. 🦇               |
 | 42 | 2020-11-09  | Suspended | @\_\_\_RefinedV\_\_\_   | 1318329811622793217 | ⚔ ₭.Ɏ.Ɇ. ⚔                    |
 | 43 | 2021-02-03  | Suspended | @clampdownonjews        | 1347028618900250624 | Stop jews, Fellow Whites and  |
 | 44 | 2020-12-11  | Suspended | @\_V\_\_\_Refined\_\_\_  | 1323401828696993792 | ЯΣFIПΣD VΣПӨM                 |
