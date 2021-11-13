@@ -50,7 +50,7 @@ Note: list is incomplete and Twitter handles may have changed at points in time.
 | 33 | 2020-06-16  | Suspended | @\_NotAfraid2Die\_      | 1269042918536310785 | Luceo Non Uro                 |
 | 34 | 2020-06-17  | Suspended | [@Fight\_0r\_Die\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-06%20Fight_0r_Die_.md)       | 1272961728981196800 | Tùlach Àrd 🇺🇸🏴󠁧󠁢󠁳󠁣󠁴󠁿 |
 | 35 | 2020-07-01  | Suspended | @\_POC\_HATER\_         | 1273676436579082240 | POC Hater                     |
-| 36 | 2020-07-01  | Suspended | @Danger\_\_\_Zone\_\_   | 1276057673667153925 | Danger Zone                   |
+| 36 | 2020-07-01  | Suspended | [@Danger\_\_\_Zone\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-07%20Danger___Zone__.md)   | 1276057673667153925 | Danger Zone                   |
 | 37 | 2020-07-17  | Suspended | @Time2Bleed             | 1278817039633862656 | Ichor                         |
 | 38 | 2020-08-25  | Suspended | @Burn\_\_ln\_\_Hell\_   | 1283625134574772229 | Incinerator                   |
 | 39 | 2020-09-17  | Suspended | @\_\_YourCrucible\_     | 1291477616726220800 | † 𝕮𝖗𝖚𝖈𝖎𝖇𝖑𝖊 †          |
