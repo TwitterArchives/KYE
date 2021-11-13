@@ -6,7 +6,7 @@ This repository is a collection of tweets posted by abusive Twitter troll known 
 
 This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
-This information was collected from volunteers to help track and document abuse on Twitter's platform.
+This information was collected from volunteers who have been tracking abuse on Twitter's platform.
 
 
 
