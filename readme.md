@@ -11,7 +11,7 @@ List contains some of the identified accounts associated with the user but may b
 
 
 
-* [19-09 to 19-09 Kn0wY0urEnemy](https://github.com/TwitterArchives/KYE/blob/main/19-09%20to%2019-09%20Kn0wY0urEnemy.md):
+* [19-09 to 19-09 Kn0wY0urEnemy:
 
 | #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
 | -- | ----------- | --------- | ----------------------- | ------------------- | ----------------------------- |
@@ -36,7 +36,7 @@ List contains some of the identified accounts associated with the user but may b
 | 17 | 2019-09-02  | Suspended | @Ropez4Traitors         | 1157950708399915008 | Know Your Enemy               |
 | 18 | 2019-08-24  | Suspended | @Bullet4Traitors        | 1158156159011950593 | Know Your Enemy               |
 | 19 | 2019-09-13  | Suspended | @CrossfireBlaze\_       | 1163638950122217472 | Know Your Enemy               |
-| 20 | 2019-09-05  | Suspended | @Kn0wY0urEnemy          | 1167663129700065280 | Know Your Enemy               |
+| 20 | 2019-09-05  | Suspended | [@Kn0wY0urEnemy](https://github.com/TwitterArchives/KYE/blob/main/19-09%20to%2019-09%20Kn0wY0urEnemy.md)          | 1167663129700065280 | Know Your Enemy               |
 | 21 | 2019-09-08  | Suspended | @QuikNDead              | 1169721242938675200 | Know Your Enemy               |
 | 22 | 2019-09-17  | Suspended | @Nice\_Til\_Not         | 1170078700823568384 | Know Your Enemy               |
 | 23 | 2019-09-19  | Suspended | @MongoloidsRMad         | 1174509709769859072 | KYE                           |
