@@ -1,9 +1,9 @@
-## Archived tweets for _NameNotGiven_
+## Archived tweets for \_NameNotGiven\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 29 archived tweets by
-[_NameNotGiven_](https://twitter.com/_NameNotGiven_).
+[\_NameNotGiven\_](https://twitter.com/_NameNotGiven_).
 
 
 
