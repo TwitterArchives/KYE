@@ -48,7 +48,7 @@ Note: list is incomplete and Twitter handles may have changed at points in time.
 | 31 | 2020-06-04  | Suspended | [@\_cremator\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-06%20_cremator_.md)           | 1268341963322843136 | Cremator 🔥                   |
 | 32 | 2020-06-12  | Suspended | @\_Black\_Stag\_        | 1266427274514980867 | Know Your Enemy               |
 | 33 | 2020-06-16  | Suspended | @\_NotAfraid2Die\_      | 1269042918536310785 | Luceo Non Uro                 |
-| 34 | 2020-06-17  | Suspended | @Fight\_0r\_Die\_       | 1272961728981196800 | Tùlach Àrd 🇺🇸🏴󠁧󠁢󠁳󠁣󠁴󠁿 |
+| 34 | 2020-06-17  | Suspended | [@Fight\_0r\_Die\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-06%20to%2020-06%20Fight_0r_Die_.md)       | 1272961728981196800 | Tùlach Àrd 🇺🇸🏴󠁧󠁢󠁳󠁣󠁴󠁿 |
 | 35 | 2020-07-01  | Suspended | @\_POC\_HATER\_         | 1273676436579082240 | POC Hater                     |
 | 36 | 2020-07-01  | Suspended | @Danger\_\_\_Zone\_\_   | 1276057673667153925 | Danger Zone                   |
 | 37 | 2020-07-17  | Suspended | @Time2Bleed             | 1278817039633862656 | Ichor                         |
