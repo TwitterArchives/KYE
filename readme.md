@@ -16,10 +16,6 @@ List contains some of the identified accounts associated with the user but may b
 
 | #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
 | -- | ----------- | --------- | ----------------------- | ------------------- | ----------------------------- |
-| 0  | 2020-11-14  | Suspended | @Fire\_Stinger\_        | 1301919211435044864 | Stung By Fire                 |
-| 0  | 2020-11-25  | Suspended | @CoasterEnthuse         | 1331168302664716288 | ᵣₒₗₗₑᵣcₒₐₛₜₑᵣ ₑₙₜₕᵤₛᵢₐₛₜ      |
-| 0  | 2020-12-04  | Suspended | @ToTheHighHill          | 1334606760414474240 | ɦɨɢɦ ɦɨʟʟ                     |
-| 0  | 2020-12-26  | Suspended | @\_darknessfallz\_      | 1338595137123966978 | 𝕯𝖆𝖗𝖐𝖓𝖊𝖘𝖘 𝕱𝖆𝖑𝖑𝖘   |
 | 1  | 2018-05-03  | Suspended | @\_NameNotGiven\_       | 988966055497285632  | Know Your Enemy               |
 | 2  | 2019-02-25  | Suspended | @R\_U\_Still\_Mad       | 1094034212263546881 | Know Your Enemy               |
 | 3  | 2019-04-02  | Suspended | @\_CantStopTruth\_      | 1106735481616826368 | Know Your Enemy               |
