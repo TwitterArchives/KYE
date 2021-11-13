@@ -2,7 +2,11 @@
 
 ### CONTENT WARNING: Tweets potentially contain racism and antisemitism.
 
-This repository contains a collection of tweets posted by Twitter troll known under the pseudonym "Know Your Enemy" for documentation purposes. This user is frequently suspended from the platform for racism, antisemitism, and harassment.
+This repository contains a collection of tweets posted by Twitter troll known under the pseudonym "Know Your Enemy" for documentation purposes. 
+This user is frequently suspended from the platform for racism, antisemitism, and harassment.
+
+
+These handles were tracked by a collective of individuals, and all collected tweets were publicly posted by the user and saved at archive.org.
 
 Note: list is incomplete and Twitter handles may have changed at points in time.
 
@@ -38,28 +42,28 @@ Note: list is incomplete and Twitter handles may have changed at points in time.
 | 25 | 2020-01-16  | Suspended | [@VengfulVigilant](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-12%20to%2020-01%20VengfulVigilant.md)| 1583133811          | Know Your Enemy               |
 | 26 | 2020-02-16  | Suspended | [@DarkHorseRides\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-12%20to%2020-02%20DarkHorseRides_.md)       | 1211433675633487872 | Know Your Enemy               |
 | 27 | 2020-02-18  | Suspended | [@\_Luceo\_NonUro\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-02%20to%2020-02%20_Luceo_NonUro_.md)      | 37642998            | Know Your Enemy               |
-| 28 | 2020-02-19  | Suspended | @\_blackstag\_          | 1228518278689181699 | Know Your Enemy               |
-| 29 | 2020-05-12  | Suspended | @\_\_End\_\_Game        | 1233884667704537092 | Know Your Enemy               |
-| 30 | 2020-04-01  | Suspended | @\_End\_Game\_          | 1244567805095219200 | KYE                           |
-| 31 | 2020-06-04  | Suspended | @\_cremator\_           | 1268341963322843136 | Cremator 🔥                   |
-| 32 | 2020-06-12  | Suspended | @\_Black\_Stag\_        | 1266427274514980867 | Know Your Enemy               |
-| 33 | 2020-06-16  | Suspended | @\_NotAfraid2Die\_      | 1269042918536310785 | Luceo Non Uro                 |
-| 34 | 2020-06-17  | Suspended | @Fight\_0r\_Die\_       | 1272961728981196800 | Tùlach Àrd 🇺🇸🏴󠁧󠁢󠁳󠁣󠁴󠁿 |
-| 35 | 2020-07-01  | Suspended | @\_POC\_HATER\_         | 1273676436579082240 | POC Hater                     |
-| 36 | 2020-07-01  | Suspended | @Danger\_\_\_Zone\_\_   | 1276057673667153925 | Danger Zone                   |
-| 37 | 2020-07-17  | Suspended | @Time2Bleed             | 1278817039633862656 | Ichor                         |
-| 38 | 2020-08-25  | Suspended | @Burn\_\_ln\_\_Hell\_   | 1283625134574772229 | Incinerator                   |
-| 39 | 2020-09-17  | Suspended | @\_\_YourCrucible\_     | 1291477616726220800 | † 𝕮𝖗𝖚𝖈𝖎𝖇𝖑𝖊 †          |
-| 40 | 2020-10-17  | Suspended | @\_MilkNCookiez\_       | 1304586706838892544 | K.Y.E.                        |
-| 41 | 2020-10-29  | Suspended | @Cookiez\_N\_Milk\_     | 1312478326024364032 | 🦇 𝕂.𝕐.𝔼. 🦇               |
-| 42 | 2020-11-09  | Suspended | @\_\_\_RefinedV\_\_\_   | 1318329811622793217 | ⚔ ₭.Ɏ.Ɇ. ⚔                    |
-| 43 | 2021-02-03  | Suspended | @clampdownonjews        | 1347028618900250624 | Stop jews, Fellow Whites and  |
-| 44 | 2020-12-11  | Suspended | @\_V\_\_\_Refined\_\_\_ | 1323401828696993792 | ЯΣFIПΣD VΣПӨM                 |
-| 45 | 2021-01-20  | Suspended | @MutinyProsodic         | 1350185497767776258 | ᑭᖇOᔕOᗪIᑕ ᗰᑌTIᑎY               |
-| 46 | 2021-02-20  | Suspended | @BehindUrBadDays        | 1361581994262552576 | 𝐂𝐫𝐞𝐦𝐚𝐭𝐨𝐫 𝐈𝐈         |
-| 47 | 2021-06-08  | Suspended | @\_Snipe\_Hunter\_      | 1366938082377928704 | Snipe Hunter                  |
-| 48 | 2021-07-31  | Suspended | @OhGawdMyShoes          | 1421323593166827521 | Shoes 👞                      |
-| 49 | 2021-09-22  | Suspended | @\_HeilSiegy\_          | 1440789641091710977 | Heil Siegy                    |
-| 50 | 2021-10-09  | Suspended | @\_KnowYour\_Enemy      | 1443989548157992964 | KYE                           |
-| 51 | 2021-11-04  | Suspended | @\_\_\_k\_y\_e\_\_\_    | 1451269753952247810 | ₭.Ɏ.Ɇ                         |
+| 28 | 2020-02-19  | Suspended | [@\_blackstag\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-04%20to%2020-04%20_blackstag_.md)          | 1228518278689181699 | Know Your Enemy               |
+| 29 | 2020-05-12  | Suspended | [@\_\_End\_\_Game]()        | 1233884667704537092 | Know Your Enemy               |
+| 30 | 2020-04-01  | Suspended | [@\_End\_Game\_]()          | 1244567805095219200 | KYE                           |
+| 31 | 2020-06-04  | Suspended | [@\_cremator\_]()           | 1268341963322843136 | Cremator 🔥                   |
+| 32 | 2020-06-12  | Suspended | [@\_Black\_Stag\_]()        | 1266427274514980867 | Know Your Enemy               |
+| 33 | 2020-06-16  | Suspended | [@\_NotAfraid2Die\_]()      | 1269042918536310785 | Luceo Non Uro                 |
+| 34 | 2020-06-17  | Suspended | [@Fight\_0r\_Die\_]()       | 1272961728981196800 | Tùlach Àrd 🇺🇸🏴󠁧󠁢󠁳󠁣󠁴󠁿 |
+| 35 | 2020-07-01  | Suspended | [@\_POC\_HATER\_]()         | 1273676436579082240 | POC Hater                     |
+| 36 | 2020-07-01  | Suspended | [@Danger\_\_\_Zone\_\_]()   | 1276057673667153925 | Danger Zone                   |
+| 37 | 2020-07-17  | Suspended | [@Time2Bleed]()             | 1278817039633862656 | Ichor                         |
+| 38 | 2020-08-25  | Suspended | [@Burn\_\_ln\_\_Hell\_]()   | 1283625134574772229 | Incinerator                   |
+| 39 | 2020-09-17  | Suspended | [@\_\_YourCrucible\_]()     | 1291477616726220800 | † 𝕮𝖗𝖚𝖈𝖎𝖇𝖑𝖊 †          |
+| 40 | 2020-10-17  | Suspended | [@\_MilkNCookiez\_]()       | 1304586706838892544 | K.Y.E.                        |
+| 41 | 2020-10-29  | Suspended | [@Cookiez\_N\_Milk\_]()     | 1312478326024364032 | 🦇 𝕂.𝕐.𝔼. 🦇               |
+| 42 | 2020-11-09  | Suspended | [@\_\_\_RefinedV\_\_\_]()   | 1318329811622793217 | ⚔ ₭.Ɏ.Ɇ. ⚔                    |
+| 43 | 2021-02-03  | Suspended | [@clampdownonjews]()        | 1347028618900250624 | Stop jews, Fellow Whites and  |
+| 44 | 2020-12-11  | Suspended | [@\_V\_\_\_Refined\_\_\_]() | 1323401828696993792 | ЯΣFIПΣD VΣПӨM                 |
+| 45 | 2021-01-20  | Suspended | [@MutinyProsodic]()         | 1350185497767776258 | ᑭᖇOᔕOᗪIᑕ ᗰᑌTIᑎY               |
+| 46 | 2021-02-20  | Suspended | [@BehindUrBadDays]        | 1361581994262552576 | 𝐂𝐫𝐞𝐦𝐚𝐭𝐨𝐫 𝐈𝐈         |
+| 47 | 2021-06-08  | Suspended | [@\_Snipe\_Hunter\_]      | 1366938082377928704 | Snipe Hunter                  |
+| 48 | 2021-07-31  | Suspended | [@OhGawdMyShoes]          | 1421323593166827521 | Shoes 👞                      |
+| 49 | 2021-09-22  | Suspended | [@\_HeilSiegy\_]          | 1440789641091710977 | Heil Siegy                    |
+| 50 | 2021-10-09  | Suspended | [@\_KnowYour\_Enemy]      | 1443989548157992964 | KYE                           |
+| 51 | 2021-11-04  | Suspended | [@\_\_\_k\_y\_e\_\_\_]    | 1451269753952247810 | ₭.Ɏ.Ɇ                         |
 | 52 | 2021-11-10  | Active    | @DidUSeeKyle2day        | 1457767881832210438 | ӄռօա ʏօʊʀ ɛռɛʍʏ               |
