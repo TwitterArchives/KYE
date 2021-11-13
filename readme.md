@@ -1,4 +1,4 @@
-## Archived tweets for _blackstag_
+## Archived tweets for \_blackstag\_
 
 The list below includes 463 deleted tweets by
 [_blackstag_](https://twitter.com/_blackstag_).
