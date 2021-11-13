@@ -1,9 +1,9 @@
-## Archived tweets for DarkHorseRides_
+## Archived tweets for DarkHorseRides\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 226 archived tweets by
-[DarkHorseRides_](https://twitter.com/DarkHorseRides_).
+[DarkHorseRides\_](https://twitter.com/DarkHorseRides_).
 
 
 
