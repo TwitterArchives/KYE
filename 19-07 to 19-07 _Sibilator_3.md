@@ -1,9 +1,9 @@
-## Archived tweets for _Sibilator_3
+## Archived tweets for \_Sibilator\_3
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 1 archived tweets by
-[_Sibilator_3](https://twitter.com/_Sibilator_3).
+[\_Sibilator\_3](https://twitter.com/_Sibilator_3).
 
 
 
