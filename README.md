@@ -37,7 +37,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 20 | 2019-09-05  | Suspended | [@Kn0wY0urEnemy](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-09%20to%2019-09%20Kn0wY0urEnemy.md)          | 1167663129700065280 | Know Your Enemy               |
 | 21 | 2019-09-08  | Suspended | @QuikNDead              | 1169721242938675200 | Know Your Enemy               |
 | 22 | 2019-09-17  | Suspended | [@Nice\_Til\_Not](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-09%20to%2019-09%20Nice_Til_Not.md)         | 1170078700823568384 | Know Your Enemy               |
-| 23 | 2019-09-19  | Suspended | [@MongoloidsRMad](https://github.com/TwitterArchives/KYE/commit/85bc374cfad0f48ca3f4efe4a130fe7e6df26d53)         | 1174509709769859072 | KYE                           |
+| 23 | 2019-09-19  | Suspended | [@MongoloidsRMad](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-09%20to%2019-09%20MongoloidsRMad.md)         | 1174509709769859072 | KYE                           |
 | 24 | 2019-10-01  | Inactive  | @NICE\_TILL\_NOT        | 966976144347025408  | KNOW YOUR ENEMY               |
 | 25 | 2020-01-16  | Suspended | [@VengfulVigilant](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-12%20to%2020-01%20VengfulVigilant.md)| 1583133811          | Know Your Enemy               |
 | 26 | 2020-02-16  | Suspended | [@DarkHorseRides\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-12%20to%2020-02%20DarkHorseRides_.md)       | 1211433675633487872 | Know Your Enemy               |
