@@ -4,7 +4,7 @@
 
 This repository contains a collection of tweets posted by Twitter troll known under the pseudonym "Know Your Enemy" for documentation purposes. This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
-List contains some of the identified accounts associated with the user but may be incomplete.
+Note: list is incomplete
 
 
 | #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
@@ -23,10 +23,10 @@ List contains some of the identified accounts associated with the user but may b
 | 12 | 2019-07-07  | Suspended | [@\_Sibilator\_3 ](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20_Sibilator_3.md)        | 1147712584134455296 | Know Your Enemy               |
 | 13 | 2019-07-07  | Suspended | [@Fight0rDie60](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20Fight0rDie60.md)           | 1147845415531765761 | Know Your Enemy               |
 | 14 | 2019-07-12  | Suspended | [@\_FightTilUDie\_](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20_FightTilUDie_.md)       | 1149945764631568384 | Know Your Enemy               |
-| 15 | 2019-08-15  | Suspended | @InTheSombra            | 1151730586907750401 | Know Your Enemy               |
-| 16 | 2019-08-12  | Suspended | @Dixie\_Heart\_         | 1152379745457332225 | Know Your Enemy               |
-| 15 | 2019-08-15  | Suspended | @\_DixiesHeart\_        | 1153902489261002753 | Know Your Enemy               |
-| 16 | 2019-08-22  | Suspended | @Ropes4Traitors         | 1157376947317563392 | Know Your Enemy               |
+| 15 | 2019-08-15  | Suspended | [@InTheSombra](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20InTheSombra.md)            | 1151730586907750401 | Know Your Enemy               |
+| 16 | 2019-08-12  | Suspended | [@Dixie\_Heart\_](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-07%20Dixie_Heart_.md)         | 1152379745457332225 | Know Your Enemy               |
+| 15 | 2019-08-15  | Suspended | [@\_DixiesHeart\_](https://github.com/TwitterArchives/KYE/blob/main/19-07%20to%2019-08%20_DixiesHeart_.md)        | 1153902489261002753 | Know Your Enemy               |
+| 16 | 2019-08-22  | Suspended | [@Ropes4Traitors](https://github.com/TwitterArchives/KYE/blob/main/19-08%20to%2019-08%20Ropes4Traitors.md)         | 1157376947317563392 | Know Your Enemy               |
 | 17 | 2019-09-02  | Suspended | @Ropez4Traitors         | 1157950708399915008 | Know Your Enemy               |
 | 18 | 2019-08-24  | Suspended | @Bullet4Traitors        | 1158156159011950593 | Know Your Enemy               |
 | 19 | 2019-09-13  | Suspended | @CrossfireBlaze\_       | 1163638950122217472 | Know Your Enemy               |
