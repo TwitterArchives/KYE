@@ -8,7 +8,7 @@ This user is frequently suspended from the platform for racism, antisemitism, an
 
 All tweets were publicly posted on the accounts and saved at archive.org.
 
-Note: list is incomplete and Twitter handles may have changed at points in time.
+Note: List is incomplete and Twitter handles may have changed at points in time.
 
 
 | #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
