@@ -2,10 +2,11 @@
 
 ## CONTENT WARNING: Racism and Antisemitism
 
-This repository is a collection of tweets posted by the abusive Twitter troll known as "Know Your Enemy".
-This user is known for racism, antisemitism, harassment, and is frequently suspended from the platform.
+This repository is a collection of tweets posted by abusive Twitter troll known under the pseudonym "Know Your Enemy".
 
-This information was collected from volunteers to help track and document examples of abuse on Twitter's platform.
+This user is frequently suspended from the platform for racism, antisemitism, and harassment.
+
+This information was collected from volunteers to help track and document abuse on Twitter's platform.
 
 
 
