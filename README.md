@@ -28,7 +28,7 @@ Note: list is incomplete and Twitter handles may have changed at points in time.
 | 15 | 2019-08-15  | Suspended | [@\_DixiesHeart\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-07%20to%2019-08%20_DixiesHeart_.md)        | 1153902489261002753 | Know Your Enemy               |
 | 16 | 2019-08-22  | Suspended | [@Ropes4Traitors](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-08%20to%2019-08%20Ropes4Traitors.md)         | 1157376947317563392 | Know Your Enemy               |
 | 17 | 2019-09-02  | Suspended | @Ropez4Traitors         | 1157950708399915008 | Know Your Enemy               |
-| 18 | 2019-08-24  | Suspended | @Bullet4Traitors        | 1158156159011950593 | Know Your Enemy               |
+| 18 | 2019-08-24  | Suspended | [@Bullet4Traitors](https://github.com/TwitterArchives/KYE/blob/main/Accounts/19-08%20to%2019-08%20Bullet4Traitors.md)        | 1158156159011950593 | Know Your Enemy               |
 | 19 | 2019-09-13  | Suspended | @CrossfireBlaze\_       | 1163638950122217472 | Know Your Enemy               |
 | 20 | 2019-09-05  | Suspended | [@Kn0wY0urEnemy](https://github.com/TwitterArchives/KYE/blob/main/19-09%20to%2019-09%20Kn0wY0urEnemy.md)          | 1167663129700065280 | Know Your Enemy               |
 | 21 | 2019-09-08  | Suspended | @QuikNDead              | 1169721242938675200 | Know Your Enemy               |
