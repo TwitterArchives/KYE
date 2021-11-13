@@ -6,7 +6,7 @@ This repository contains a collection of tweets posted by Twitter troll known un
 
 This user is frequently suspended from the platform for racism, antisemitism, and harassment.
 
-This information was collected from volunteers who have been tracking abuse on Twitter's platform. 
+This information was collected by volunteers who have been tracking abuse on Twitter's platform. 
 
 List contains some of the identified accounts associated with the user but may be incomplete.
 
