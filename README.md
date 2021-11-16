@@ -65,7 +65,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 46 | 2021-02-20  | Suspended | [@BehindUrBadDays](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20BehindUrBadDays.md)        | 1361581994262552576 | 𝐂𝐫𝐞𝐦𝐚𝐭𝐨𝐫 𝐈𝐈         |
 | 47 | 2021-06-08  | Suspended | [@\_Snipe\_Hunter\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-09%20_Snipe_Hunter_.md)      | 1366938082377928704 | Snipe Hunter                  |
 | 48 | 2021-07-31  | Suspended | [@OhGawdMyShoes](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-09%20OhGawdMyShoes.md)          | 1421323593166827521 | Shoes 👞                      |
-| 49 | 2021-09-22  | Suspended | @\_HeilSiegy\_          | 1440789641091710977 | Heil Siegy                    |
+| 49 | 2021-09-22  | Suspended | [@\_HeilSiegy\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-10%20_HeilSiegy_.md)          | 1440789641091710977 | Heil Siegy                    |
 | 50 | 2021-10-09  | Suspended | @\_KnowYour\_Enemy      | 1443989548157992964 | KYE                           |
 | 51 | 2021-11-04  | Suspended | @\_\_\_k\_y\_e\_\_\_   | 1451269753952247810 | ₭.Ɏ.Ɇ                         |
 | 52 | 2021-11-10  | Active    | @DidUSeeKyle2day        | 1457767881832210438 | ӄռօա ʏօʊʀ ɛռɛʍʏ               |
