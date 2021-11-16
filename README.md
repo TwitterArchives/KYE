@@ -62,7 +62,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 43 | 2021-02-03  | Suspended | [@clampdownonjews](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20clampdownonjews.md)        | 1347028618900250624 | Stop jews, Fellow Whites and  |
 | 44 | 2020-12-11  | Suspended | [@\_V\_\_\_Refined\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-11%20to%2020-11%20_V___Refined___.md)  | 1323401828696993792 | ЯΣFIПΣD VΣПӨM                 |
 | 45 | 2021-01-20  | Suspended | @MutinyProsodic         | 1350185497767776258 | ᑭᖇOᔕOᗪIᑕ ᗰᑌTIᑎY               |
-| 46 | 2021-02-20  | Suspended | @BehindUrBadDays        | 1361581994262552576 | 𝐂𝐫𝐞𝐦𝐚𝐭𝐨𝐫 𝐈𝐈         |
+| 46 | 2021-02-20  | Suspended | [@BehindUrBadDays](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20BehindUrBadDays.md)        | 1361581994262552576 | 𝐂𝐫𝐞𝐦𝐚𝐭𝐨𝐫 𝐈𝐈         |
 | 47 | 2021-06-08  | Suspended | @\_Snipe\_Hunter\_      | 1366938082377928704 | Snipe Hunter                  |
 | 48 | 2021-07-31  | Suspended | @OhGawdMyShoes          | 1421323593166827521 | Shoes 👞                      |
 | 49 | 2021-09-22  | Suspended | @\_HeilSiegy\_          | 1440789641091710977 | Heil Siegy                    |
@@ -74,5 +74,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 
 
 Updates 21-11-16: 
-[@\_V\_\_\_Refined\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-11%20to%2020-11%20_V___Refined___.md)
-[@clampdownonjews](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20clampdownonjews.md)
+*[@\_V\_\_\_Refined\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-11%20to%2020-11%20_V___Refined___.md)
+*[@clampdownonjews](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20clampdownonjews.md)
+*[@BehindUrBadDays](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20BehindUrBadDays.md)
+*
