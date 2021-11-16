@@ -67,7 +67,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 48 | 2021-07-31  | Suspended | [@OhGawdMyShoes](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-09%20OhGawdMyShoes.md)          | 1421323593166827521 | Shoes 👞                      |
 | 49 | 2021-09-22  | Suspended | [@\_HeilSiegy\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-10%20_HeilSiegy_.md)          | 1440789641091710977 | Heil Siegy                    |
 | 50 | 2021-10-09  | Suspended | [@\_KnowYour\_Enemy](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)      | 1443989548157992964 | KYE                           |
-| 51 | 2021-11-04  | Suspended | @\_\_\_k\_y\_e\_\_\_   | 1451269753952247810 | ₭.Ɏ.Ɇ                         |
+| 51 | 2021-11-04  | Suspended | [@\_\_\_k\_y\_e\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)   | 1451269753952247810 | ₭.Ɏ.Ɇ                         |
 | 52 | 2021-11-10  | Active    | @DidUSeeKyle2day        | 1457767881832210438 | ӄռօա ʏօʊʀ ɛռɛʍʏ               |
 
 
@@ -83,4 +83,5 @@ Updates 21-11-16:
 * [@OhGawdMyShoes](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-09%20OhGawdMyShoes.md)
 * [@\_HeilSiegy\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-10%20_HeilSiegy_.md)
 * [@\_KnowYour\_Enemy](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)
+* [@\_\_\_k\_y\_e\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)
 
