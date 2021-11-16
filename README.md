@@ -59,7 +59,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 40 | 2020-10-17  | Suspended | [@\_MilkNCookiez\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-09%20to%2020-10%20_MilkNCookiez_.md)       | 1304586706838892544 | K.Y.E.                        |
 | 41 | 2020-10-29  | Suspended | [@Cookiez\_N\_Milk\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-10%20to%2020-11%20Cookiez_N_Milk_.md)     | 1312478326024364032 | 🦇 𝕂.𝕐.𝔼. 🦇               |
 | 42 | 2020-11-09  | Suspended | [@\_\_\_RefinedV\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-11%20to%2020-11%20___RefinedV___.md)   | 1318329811622793217 | ⚔ ₭.Ɏ.Ɇ. ⚔                    |
-| 43 | 2021-02-03  | Suspended | @clampdownonjews        | 1347028618900250624 | Stop jews, Fellow Whites and  |
+| 43 | 2021-02-03  | Suspended | [@clampdownonjews](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20clampdownonjews.md)        | 1347028618900250624 | Stop jews, Fellow Whites and  |
 | 44 | 2020-12-11  | Suspended | @\_V\_\_\_Refined\_\_\_  | 1323401828696993792 | ЯΣFIПΣD VΣПӨM                 |
 | 45 | 2021-01-20  | Suspended | @MutinyProsodic         | 1350185497767776258 | ᑭᖇOᔕOᗪIᑕ ᗰᑌTIᑎY               |
 | 46 | 2021-02-20  | Suspended | @BehindUrBadDays        | 1361581994262552576 | 𝐂𝐫𝐞𝐦𝐚𝐭𝐨𝐫 𝐈𝐈         |
