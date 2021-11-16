@@ -61,7 +61,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 42 | 2020-11-09  | Suspended | [@\_\_\_RefinedV\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-11%20to%2020-11%20___RefinedV___.md)   | 1318329811622793217 | ⚔ ₭.Ɏ.Ɇ. ⚔                    |
 | 43 | 2021-02-03  | Suspended | [@clampdownonjews](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20clampdownonjews.md)        | 1347028618900250624 | Stop jews, Fellow Whites and  |
 | 44 | 2020-12-11  | Suspended | [@\_V\_\_\_Refined\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-11%20to%2020-11%20_V___Refined___.md)  | 1323401828696993792 | ЯΣFIПΣD VΣПӨM                 |
-| 45 | 2021-01-20  | Suspended | @MutinyProsodic         | 1350185497767776258 | ᑭᖇOᔕOᗪIᑕ ᗰᑌTIᑎY               |
+| 45 | 2021-01-20  | Suspended | [@MutinyProsodic](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-01%20to%2021-02%20MutinyProsodic.md)         | 1350185497767776258 | ᑭᖇOᔕOᗪIᑕ ᗰᑌTIᑎY               |
 | 46 | 2021-02-20  | Suspended | [@BehindUrBadDays](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20BehindUrBadDays.md)        | 1361581994262552576 | 𝐂𝐫𝐞𝐦𝐚𝐭𝐨𝐫 𝐈𝐈         |
 | 47 | 2021-06-08  | Suspended | [@\_Snipe\_Hunter\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-09%20_Snipe_Hunter_.md)      | 1366938082377928704 | Snipe Hunter                  |
 | 48 | 2021-07-31  | Suspended | [@OhGawdMyShoes](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-09%20OhGawdMyShoes.md)          | 1421323593166827521 | Shoes 👞                      |
@@ -77,6 +77,7 @@ Updates 21-11-16:
 
 * [@\_V\_\_\_Refined\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/20-11%20to%2020-11%20_V___Refined___.md)
 * [@clampdownonjews](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20clampdownonjews.md)
+* [@MutinyProsodic](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-01%20to%2021-02%20MutinyProsodic.md)
 * [@BehindUrBadDays](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-02%20to%2021-02%20BehindUrBadDays.md)
 * [@\_Snipe\_Hunter\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-09%20_Snipe_Hunter_.md)  
 * [@OhGawdMyShoes](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-09%20OhGawdMyShoes.md)
