@@ -88,7 +88,7 @@ Updates 21-11-16:
 
 Additional to check: 
 
-2017-10-05 @endtimesalert name change 
+2017-10-05 [@endtimesalert](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-01%20to%2017-10%20endtimesalert.md) name change 
 
 2017-10-13 [@EndTimePast](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-09%20to%2017-10%20EndTimePast.md)
 
