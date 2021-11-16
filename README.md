@@ -88,36 +88,68 @@ Updates 21-11-16:
 
 Additional to check: 2017-11-09 @endtimeparadigm
 2017-12-19 @endtheparadigm
+
 2018-01-10 @Know\_Ur\_Enemy\_
+
 2018-01-27 @VampirezRJooz Vampires Are Real
+
 2018-02-03 @No\_Your\_Enemy
+
 2018-02-06 @Kno\_Your\_Enemy
+
 2018-02-28 @Know\_Yr\_Enemy\_
+
 2018-03-02 @Know\_Ur\_Enemy\_ name change
+
 2018-04-05 @no\_ur\_enemy "fan account" - live
+
 2018-05-06 @\_NameNotGiven\_
+
 2018-05-08 @N0_Your_Enemy
+
 2018-04-21 @\_RollinDice\_
+
 2018-04-22 @rollin\_bones
+
 2018-04-26 @\_rollin\_aces\_ 
+
 2018-05-14 @\_WhyIFight\_
+
 2018-05-17 @\_Fight0rDie\_
+
 2018-05-28 @\_Fight0rDie2\_
+
 2018-06-05 @\_Fight0rDie3\_
+
 2018-06-06 @\_WhyIFight3\_
+
 2018-06-30 @\_WhyIFight4\_
+
 2018-07-24 @\_Fight0rDie4\_
+
 2018-08-15 @\_Fight0rDie5\_
+
 2018-10-02 @\_Fight0rDie6\_
+
 2018-10-26 @\_WhyIFight8\_
+
 2018-11-06 @\_NoRoom4Error\_
+
 2018-11-19 @EnemyIsAtWork
+
 2018-12-03 @\_KatchMeIfUKan\_ 
+
 2018-12-11 @StilCantKatchMe
+
 2018-12-23 @StilCantCatchMe
+
 2019-01-09 @Under\_Ur\_Skin\_
+
 2019-01-16 @\_Fight0rDie7\_
+
 2019-02-03 @StilUndrUrSkin
+
 2019-08-18 @CrossfireBlaze
+
 2019-08-19 @BlazesCrossfire namechange
 
