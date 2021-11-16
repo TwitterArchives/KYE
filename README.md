@@ -88,7 +88,9 @@ Updates 21-11-16:
 
 Additional to check: 
 
-2017-10-13 @EndTimePast
+2017-10-05 @endtimesalert name change 
+
+2017-10-13 [@EndTimePast](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-09%20to%2017-10%20EndTimePast.md)
 
 2017-11-09 [@endtimeparadigm](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-09%20to%2017-12%20endtimeparadigm.md)
 
@@ -98,7 +100,7 @@ Additional to check:
 
 2018-01-27 [@VampirezRJooz](https://github.com/TwitterArchives/KYE/blob/main/Accounts/18-01%20to%2018-02%20VampirezRJooz.md)
 
-2018-02-03 @No\_Your\_Enemy
+2018-02-03 [@No\_Your\_Enemy](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-12%20to%2018-02%20No_Your_Enemy.md)
 
 2018-02-06 @Kno\_Your\_Enemy
 
