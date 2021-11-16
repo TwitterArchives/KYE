@@ -86,7 +86,9 @@ Updates 21-11-16:
 * [@\_\_\_k\_y\_e\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)
 * [@DidUSeeKyle2day](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-11%20to%2021-11%20DidUSeeKyle2day.md)
 
-Additional to check: 2017-11-09 @endtimeparadigm
+Additional to check: 
+2017-11-09 @endtimeparadigm
+
 2017-12-19 @endtheparadigm
 
 2018-01-10 @Know\_Ur\_Enemy\_
