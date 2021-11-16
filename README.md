@@ -88,13 +88,15 @@ Updates 21-11-16:
 
 Additional to check: 
 
+2017-10-13 @EndTimePast
+
 2017-11-09 [@endtimeparadigm](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-09%20to%2017-12%20endtimeparadigm.md)
 
 2017-12-19 [@endtheparadigm](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-12%20to%2017-12%20endtheparadigm.md)
 
 2018-01-10 [@Know\_Ur\_Enemy\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/18-02%20to%2018-03%20Know_Ur_Enemy_.md)
 
-2018-01-27 @VampirezRJooz Vampires Are Real
+2018-01-27 [@VampirezRJooz](https://github.com/TwitterArchives/KYE/blob/main/Accounts/18-01%20to%2018-02%20VampirezRJooz.md)
 
 2018-02-03 @No\_Your\_Enemy
 
