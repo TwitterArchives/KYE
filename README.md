@@ -68,7 +68,7 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 | 49 | 2021-09-22  | Suspended | [@\_HeilSiegy\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-10%20_HeilSiegy_.md)          | 1440789641091710977 | Heil Siegy                    |
 | 50 | 2021-10-09  | Suspended | [@\_KnowYour\_Enemy](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)      | 1443989548157992964 | KYE                           |
 | 51 | 2021-11-04  | Suspended | [@\_\_\_k\_y\_e\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)   | 1451269753952247810 | ₭.Ɏ.Ɇ                         |
-| 52 | 2021-11-10  | Active    | @DidUSeeKyle2day        | 1457767881832210438 | ӄռօա ʏօʊʀ ɛռɛʍʏ               |
+| 52 | 2021-11-10  | Active    | [@DidUSeeKyle2day](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-11%20to%2021-11%20DidUSeeKyle2day.md)        | 1457767881832210438 | ӄռօա ʏօʊʀ ɛռɛʍʏ               |
 
 
 
@@ -84,4 +84,40 @@ Updates 21-11-16:
 * [@\_HeilSiegy\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-10%20_HeilSiegy_.md)
 * [@\_KnowYour\_Enemy](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)
 * [@\_\_\_k\_y\_e\_\_\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-10%20to%2021-10%20_KnowYour_Enemy)
+* [@DidUSeeKyle2day](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-11%20to%2021-11%20DidUSeeKyle2day.md)
+
+Additional to check: 2017-11-09 @endtimeparadigm
+2017-12-19 @endtheparadigm
+2018-01-10 @Know\_Ur\_Enemy\_
+2018-01-27 @VampirezRJooz Vampires Are Real
+2018-02-03 @No\_Your\_Enemy
+2018-02-06 @Kno\_Your\_Enemy
+2018-02-28 @Know\_Yr\_Enemy\_
+2018-03-02 @Know\_Ur\_Enemy\_ name change
+2018-04-05 @no\_ur\_enemy "fan account" - live
+2018-05-06 @\_NameNotGiven\_
+2018-05-08 @N0_Your_Enemy
+2018-04-21 @\_RollinDice\_
+2018-04-22 @rollin\_bones
+2018-04-26 @\_rollin\_aces\_ 
+2018-05-14 @\_WhyIFight\_
+2018-05-17 @\_Fight0rDie\_
+2018-05-28 @\_Fight0rDie2\_
+2018-06-05 @\_Fight0rDie3\_
+2018-06-06 @\_WhyIFight3\_
+2018-06-30 @\_WhyIFight4\_
+2018-07-24 @\_Fight0rDie4\_
+2018-08-15 @\_Fight0rDie5\_
+2018-10-02 @\_Fight0rDie6\_
+2018-10-26 @\_WhyIFight8\_
+2018-11-06 @\_NoRoom4Error\_
+2018-11-19 @EnemyIsAtWork
+2018-12-03 @\_KatchMeIfUKan\_ 
+2018-12-11 @StilCantKatchMe
+2018-12-23 @StilCantCatchMe
+2019-01-09 @Under\_Ur\_Skin\_
+2019-01-16 @\_Fight0rDie7\_
+2019-02-03 @StilUndrUrSkin
+2019-08-18 @CrossfireBlaze
+2019-08-19 @BlazesCrossfire namechange
 
