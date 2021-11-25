@@ -1,4 +1,4 @@
-## Deleted tweets for Ebb\_N_Flow_
+## Archived tweets for Ebb\_N_Flow_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
