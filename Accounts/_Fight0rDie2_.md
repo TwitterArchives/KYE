@@ -1,4 +1,4 @@
-## Deleted tweets for \_Fight0rDie\2_
+## Deleted tweets for \_Fight0rDie2\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
