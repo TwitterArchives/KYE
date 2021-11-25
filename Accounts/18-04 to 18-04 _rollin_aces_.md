@@ -1,4 +1,4 @@
-## Deleted tweets for \_rollin\_aces\_
+## Archived tweets for \_rollin\_aces\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
