@@ -1,9 +1,9 @@
-## Deleted tweets for _NoRoom4Error_
+## Deleted tweets for \_NoRoom4Error\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 14 archived tweets by
-[_NoRoom4Error_](https://twitter.com/_NoRoom4Error_).
+[\_NoRoom4Error\_](https://twitter.com/_NoRoom4Error_).
 
 
 
