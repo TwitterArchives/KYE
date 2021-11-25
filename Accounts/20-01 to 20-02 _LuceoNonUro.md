@@ -1,9 +1,9 @@
-## Deleted tweets for _LuceoNonUro
+## Deleted tweets for \_LuceoNonUro
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 175 archived tweets by
-[_LuceoNonUro](https://twitter.com/_LuceoNonUro).
+[\_LuceoNonUro](https://twitter.com/_LuceoNonUro).
 
 
 
