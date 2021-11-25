@@ -128,4 +128,4 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 |90 |2021-11-04 |Suspended |[@DidUSeeKyle2day](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-09%20to%2021-10%20___k_y_e___.md) |1451269753952247810 |₭.Ɏ.Ɇ |
 |91 |2021-11-10 |Suspended |[@\_TickTick\_Tock\_](https://github.com/TwitterArchives/KYE/blob/main/Accounts/21-11%20to%2021-11%20DidUSeeKyle2day.md) |1457767881832210438 |ӄռօա ʏօʊʀ ɛռɛʍʏ |
 |92 | |Active |@\_Lethal\_Dose\_\_ |1459208968132186115 |≋K≋Y≋E≋ |
-|93 | |Active |@_Lethal_Dose__ |1461387226533793797 |Ǝ⅄⋊ |
+|93 | |Active |@\_Lethal_Dose__ |1461387226533793797 |Ǝ⅄⋊ |
