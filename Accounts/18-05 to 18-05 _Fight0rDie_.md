@@ -1,9 +1,9 @@
-## Deleted tweets for _Fight0rDie_
+## Deleted tweets for \_Fight0rDie\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 2 archived tweets by
-[_Fight0rDie_](https://twitter.com/_Fight0rDie_).
+[\_Fight0rDie\_](https://twitter.com/_Fight0rDie_).
 
 
 
