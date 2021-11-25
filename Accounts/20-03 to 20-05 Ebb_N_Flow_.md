@@ -1,9 +1,9 @@
-## Deleted tweets for Ebb_N_Flow_
+## Deleted tweets for Ebb\_N_Flow_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 189 archived tweets by
-[Ebb_N_Flow_](https://twitter.com/Ebb_N_Flow_).
+[Ebb\_N_Flow_](https://twitter.com/Ebb_N_Flow_).
 
 
 
