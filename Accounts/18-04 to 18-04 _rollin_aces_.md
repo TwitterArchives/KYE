@@ -1,9 +1,9 @@
-## Deleted tweets for _rollin_aces_
+## Deleted tweets for \_rollin\_aces\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 8 archived tweets by
-[_rollin_aces_](https://twitter.com/_rollin_aces_).
+[\_rollin\_aces\_](https://twitter.com/_rollin_aces_).
 
 
 
