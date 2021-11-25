@@ -1,4 +1,4 @@
-## Deleted tweets for NICE_TILL_NOT
+## Deleted tweets for NICE\_TILL_NOT
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
