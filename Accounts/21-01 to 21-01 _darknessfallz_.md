@@ -1,9 +1,9 @@
-## Deleted tweets for _darknessfallz_
+## Deleted tweets for \_darknessfallz_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 161 archived tweets by
-[_darknessfallz_](https://twitter.com/_darknessfallz_).
+[\_darknessfallz_](https://twitter.com/_darknessfallz_).
 
 
 
