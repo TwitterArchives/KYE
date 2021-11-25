@@ -1,9 +1,9 @@
-## Deleted tweets for _RollinDice_
+## Deleted tweets for \_RollinDice\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 45 archived tweets by
-[_RollinDice_](https://twitter.com/_RollinDice_).
+[\_RollinDice\_](https://twitter.com/_RollinDice_).
 
 
 
@@ -30,7 +30,9 @@ any Twitter client.
 * [15 April 2018](https://web.archive.org/web/20180415212141/https://twitter.com/_RollinDice_/status/985629257106968576): @M313X By the way, no one said the quote was from the 'International jew'. 😎 https://t.co/2H0lPzFxsd
 * [14 April 2018](https://web.archive.org/web/20180414151917/https://twitter.com/_RollinDice_/status/985175668324478977): https://t.co/yWc8Z49XxD
 * [14 April 2018](https://web.archive.org/web/20180414014640/https://twitter.com/_RollinDice_/status/984971166648545281): Of course they are. They're complicit! https://t.co/lZf4YTsXnM
-* [13 April 2018](https://web.archive.org/web/20180413085214/https://twitter.com/_RollinDice_/status/984715876128706560): "Like Nicholas II., Charles I. of Austria, and Wilhelm II., Napoleon I. permitted jews to occupy the most important posts in his empire andall four Emperors were betrayed, ruined and maligned by the jews,whom they had imprudently honored...
+* [13 April 2018](https://web.archive.org/web/20180413085214/https://twitter.com/_RollinDice_/status/984715876128706560): "Like Nicholas II., Charles I. of Austria, and Wilhelm II., Napoleon I. permitted jews to occupy the most important posts in his empire and
+all four Emperors were betrayed, ruined and maligned by the jews,
+whom they had imprudently honored...
 * [12 April 2018](https://web.archive.org/web/20180412134609/https://twitter.com/_RollinDice_/status/984427454805762048): @WatchfulHermit You've been missed. 😎
 * [12 April 2018](https://web.archive.org/web/20180412082848/https://twitter.com/_RollinDice_/status/984347591075860480): The exhibit was closed within hours due to it’s controversial nature. However, just like the Anne Stank story, this one is just a little more controversy to keep the fake holocaust of jews at the forefront; while at the same time totally ignoring the real burnt offering
 * [12 April 2018](https://web.archive.org/web/20180412060907/https://twitter.com/_RollinDice_/status/984312438601510912): READ.   You'll NEVER understand the predicament we're in, if you do not know your history and your enemy. Don't make excuses. The man who DOES NOT read, has no advantage over the man who CANNOT read.   READ.
