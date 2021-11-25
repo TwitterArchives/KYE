@@ -1,9 +1,9 @@
-## Deleted tweets for Know_Yr_Enemy_
+## Archived tweets for Know\_Yr_Enemy_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 38 archived tweets by
-[Know_Yr_Enemy_](https://twitter.com/Know_Yr_Enemy_).
+[Know\_Yr_Enemy_](https://twitter.com/Know_Yr_Enemy_).
 
 
 
