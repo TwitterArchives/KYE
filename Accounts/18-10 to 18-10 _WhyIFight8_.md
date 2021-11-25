@@ -1,9 +1,9 @@
-## Deleted tweets for _WhyIFight8_
+## Deleted tweets for \_WhyIFight8\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 3 archived tweets by
-[_WhyIFight8_](https://twitter.com/_WhyIFight8_).
+[\_WhyIFight8\_](https://twitter.com/_WhyIFight8_).
 
 
 
