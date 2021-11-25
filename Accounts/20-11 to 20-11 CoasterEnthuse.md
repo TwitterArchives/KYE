@@ -1,4 +1,4 @@
-## Deleted tweets for CoasterEnthuse
+## Archived tweets for CoasterEnthuse
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

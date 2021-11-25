@@ -1,4 +1,4 @@
-## Deleted tweets for \_LuceoNonUro
+## Archived tweets for \_LuceoNonUro
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

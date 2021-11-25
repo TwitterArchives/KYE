@@ -1,4 +1,4 @@
-## Deleted tweets for ToTheHighHill
+## Archived tweets for ToTheHighHill
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

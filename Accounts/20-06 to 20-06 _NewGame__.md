@@ -1,4 +1,4 @@
-## Deleted tweets for \_NewGame\_\_
+## Archived tweets for \_NewGame\_\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

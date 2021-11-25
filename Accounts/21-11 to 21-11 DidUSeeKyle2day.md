@@ -1,4 +1,4 @@
-## Deleted tweets for DidUSeeKyle2day
+## Archived tweets for DidUSeeKyle2day
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

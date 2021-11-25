@@ -1,4 +1,4 @@
-## Deleted tweets for CrossfireBlaze
+## Archived tweets for CrossfireBlaze
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

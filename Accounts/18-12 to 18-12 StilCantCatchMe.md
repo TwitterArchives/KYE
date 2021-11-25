@@ -1,4 +1,4 @@
-## Deleted tweets for StilCantCatchMe
+## Archived tweets for StilCantCatchMe
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

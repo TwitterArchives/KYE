@@ -1,4 +1,4 @@
-## Deleted tweets for Fire_Stinger_
+## Archived tweets for Fire_Stinger_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

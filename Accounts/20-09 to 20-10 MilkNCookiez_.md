@@ -1,4 +1,4 @@
-## Deleted tweets for MilkNCookiez_
+## Archived tweets for MilkNCookiez_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

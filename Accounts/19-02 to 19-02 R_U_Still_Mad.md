@@ -1,9 +1,9 @@
-## Archived tweets for R_U_Still_Mad
+## Archived tweets for R\_U_Still_Mad
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 6 archived tweets by
-[R_U_Still_Mad](https://twitter.com/R_U_Still_Mad).
+[R\_U_Still_Mad](https://twitter.com/R_U_Still_Mad).
 
 
 

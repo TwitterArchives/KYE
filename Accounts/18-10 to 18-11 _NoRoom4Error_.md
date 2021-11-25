@@ -1,4 +1,4 @@
-## Deleted tweets for \_NoRoom4Error\_
+## Archived tweets for \_NoRoom4Error\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

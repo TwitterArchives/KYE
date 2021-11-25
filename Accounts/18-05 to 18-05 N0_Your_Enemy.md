@@ -1,9 +1,9 @@
-## Deleted tweets for N0_Your_Enemy
+## Archived tweets for N0\_Your_Enemy
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 6 archived tweets by
-[N0_Your_Enemy](https://twitter.com/N0_Your_Enemy).
+[N0\_Your_Enemy](https://twitter.com/N0_Your_Enemy).
 
 
 

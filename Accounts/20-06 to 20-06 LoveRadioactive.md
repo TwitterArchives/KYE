@@ -1,4 +1,4 @@
-## Deleted tweets for LoveRadioactive
+## Archived tweets for LoveRadioactive
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

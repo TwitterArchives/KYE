@@ -1,4 +1,4 @@
-## Deleted tweets for __end__game
+## Archived tweets for __end__game
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

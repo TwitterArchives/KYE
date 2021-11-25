@@ -1,4 +1,4 @@
-## Deleted tweets for \_WhyIFight\_
+## Archived tweets for \_WhyIFight\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

@@ -1,4 +1,4 @@
-## Deleted tweets for Refined\_Venom_
+## Archived tweets for Refined\_Venom_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

@@ -1,4 +1,4 @@
-## Deleted tweets for vREFINED
+## Archived tweets for vREFINED
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

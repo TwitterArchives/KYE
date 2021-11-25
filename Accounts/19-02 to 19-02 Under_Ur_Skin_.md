@@ -1,9 +1,9 @@
-## Deleted tweets for Under_Ur_Skin_
+## Archived tweets for Under\_Ur_Skin_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 2 archived tweets by
-[Under_Ur_Skin_](https://twitter.com/Under_Ur_Skin_).
+[Under\_Ur_Skin_](https://twitter.com/Under_Ur_Skin_).
 
 
 

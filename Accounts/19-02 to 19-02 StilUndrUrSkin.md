@@ -1,4 +1,4 @@
-## Deleted tweets for StilUndrUrSkin
+## Archived tweets for StilUndrUrSkin
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

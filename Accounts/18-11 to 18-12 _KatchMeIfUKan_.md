@@ -1,4 +1,4 @@
-## Deleted tweets for _KatchMeIfUKan_
+## Archived tweets for _KatchMeIfUKan_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

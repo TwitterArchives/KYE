@@ -1,4 +1,4 @@
-## Deleted tweets for MuddIsMyName
+## Archived tweets for MuddIsMyName
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

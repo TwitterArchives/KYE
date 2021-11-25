@@ -1,9 +1,9 @@
-## Archived tweets for _Rollin_Bones
+## Archived tweets for \_Rollin_Bones
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 6 archived tweets by
-[_Rollin_Bones](https://twitter.com/_Rollin_Bones).
+[\_Rollin_Bones](https://twitter.com/_Rollin_Bones).
 
 
 

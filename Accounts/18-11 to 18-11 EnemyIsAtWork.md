@@ -1,4 +1,4 @@
-## Deleted tweets for EnemyIsAtWork
+## Archived tweets for EnemyIsAtWork
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

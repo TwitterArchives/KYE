@@ -1,4 +1,4 @@
-## Deleted tweets for WorstNiteTerror
+## Archived tweets for WorstNiteTerror
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

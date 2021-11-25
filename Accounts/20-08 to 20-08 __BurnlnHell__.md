@@ -1,9 +1,9 @@
-## Deleted tweets for __BurnlnHell__
+## Archived tweets for \_\_BurnlnHell__
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 27 archived tweets by
-[__BurnlnHell__](https://twitter.com/__BurnlnHell__).
+[\_\_BurnlnHell__](https://twitter.com/__BurnlnHell__).
 
 
 

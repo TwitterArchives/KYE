@@ -1,4 +1,4 @@
-## Deleted tweets for \_darknessfallz_
+## Archived tweets for \_darknessfallz_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

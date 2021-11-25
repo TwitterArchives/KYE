@@ -1,4 +1,4 @@
-## Deleted tweets for \_\_nosedetector\_
+## Archived tweets for \_\_nosedetector\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 

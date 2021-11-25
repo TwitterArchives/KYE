@@ -1,4 +1,4 @@
-## Deleted tweets for \_Burn_ln_Hell_
+## Archived tweets for \_Burn_ln_Hell_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
