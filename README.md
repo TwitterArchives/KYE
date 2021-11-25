@@ -11,7 +11,7 @@ All tweets were publicly posted by the user and had a saved version located at a
 Note: List is incomplete and Twitter handles may have changed at points in time.
 
 
-[update 2021-11-25: 40+ more archives added.]
+[update 2021-11-25: forty additional archives added.]
 
 | #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
 | -- | ----------- | --------- | ----------------------- | ------------------- | ----------------------------- |
