@@ -1,9 +1,9 @@
-## Deleted tweets for __nosedetector_
+## Deleted tweets for \_\_nosedetector\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 28 archived tweets by
-[__nosedetector_](https://twitter.com/__nosedetector_).
+[\_\_nosedetector\_](https://twitter.com/__nosedetector_).
 
 
 
