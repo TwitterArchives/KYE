@@ -1,4 +1,4 @@
-## Deleted tweets for BeepYourEnemy
+## Archived tweets for BeepYourEnemy
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
