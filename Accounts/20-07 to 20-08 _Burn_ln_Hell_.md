@@ -1,9 +1,9 @@
-## Deleted tweets for _Burn_ln_Hell_
+## Deleted tweets for \_Burn_ln_Hell_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 126 archived tweets by
-[_Burn_ln_Hell_](https://twitter.com/_Burn_ln_Hell_).
+[\_Burn_ln_Hell_](https://twitter.com/_Burn_ln_Hell_).
 
 
 
