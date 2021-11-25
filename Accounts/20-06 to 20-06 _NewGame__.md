@@ -1,9 +1,9 @@
-## Deleted tweets for _NewGame__
+## Deleted tweets for \_NewGame\_\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
 The list below includes 199 archived tweets by
-[_NewGame__](https://twitter.com/_NewGame__).
+[\_NewGame\_\_](https://twitter.com/_NewGame__).
 
 
 
