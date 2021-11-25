@@ -1,4 +1,4 @@
-## Deleted tweets for \_RollinDice\_
+## Archived tweets for \_RollinDice\_
 ### Content warning: racism and antisemitism
 More information: https://github.com/TwitterArchives/KYE#readme
 
