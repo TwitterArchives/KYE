@@ -13,6 +13,8 @@ Note: List is incomplete and Twitter handles may have changed at points in time.
 
 [update 2021-11-25: 40+ more archives added.]
 
+| #  | Approx Date | Status    | Handle                  | User ID             | Name                          |
+| -- | ----------- | --------- | ----------------------- | ------------------- | ----------------------------- |
 |- |2017-10-05 |Name change |[@EndTimePast](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-01%20to%2017-10%20endtimesalert.md) | |End Times Alert |
 |1 |2017-10-13 |Suspended |[@endtimeparadigm](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-09%20to%2017-10%20EndTimePast.md) |912937928963362816 |70 A.D. |
 |2 |2017-11-09 |Suspended |[@endtheparadigm](https://github.com/TwitterArchives/KYE/blob/main/Accounts/17-09%20to%2017-12%20endtimeparadigm.md) |242746308 |End Time Paradigm |
