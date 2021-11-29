@@ -1,3 +1,4 @@
+(part 3)
 * [13 January 2020](https://web.archive.org/web/20200116095632/https://twitter.com/RadioactiveRedn/status/1216611723370815488): Imagine driving through a dark and empty mountain highway and you pass three random dudes marching alongside the road with a big bottle of whiskey thumping their chests singing "WE ARE THE HAMMER OF THE GODS WE ARE THUNDER WIND AND RAIN!" At least one guy had that experience.
 * [13 January 2020](https://web.archive.org/web/20200116010319/https://twitter.com/RadioactiveRedn/status/1216602960907530241): There are four people who could know who I am from this story. Hit me up.
 * [13 January 2020](https://web.archive.org/web/20200117050253/https://twitter.com/RadioactiveRedn/status/1216608359031296002): [I] Trust the Plan Q
